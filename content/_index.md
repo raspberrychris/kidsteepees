@@ -1,4 +1,4 @@
----
+resistant---
 title: Welcome to kidsteepees.co.uk!
 type: top
 toc: true
@@ -9,15 +9,24 @@ canonicalUrl: “/
 
 Welcome to ![kidsteepees.co.uk](kidsteepees.co.uk) the number one place to find your little one a children's teepee!  We have the cutest selection of teepees available.
 
-## Canicove Teepee Tent  Kids -
+Browse the very **best Kids Teepees** from all around the internet in one single page.  Check out our blog for the latest updates and ideas for  
 
-[![null](<https://cache.ndnb.live/6e998a756bfdf123323444f77e401f6cd4ee1663/19ec0160-578b-11eb-8f43-6dbe63856760.jpeg>)](<>)
+## Canicove Teepee Tent Kids - (OUR #1 Pick!)
+
+[![null](<https://cache.ndnb.live/6e998a756bfdf123323444f77e401f6cd4ee1663/19ec0160-578b-11eb-8f43-6dbe63856760.jpeg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 [![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 ### Product Description
 
-The tent victory  tipi children made with rugged natural materials and security tissue thickness sewn string poland hard and solid pine to save no flimsy plastic or thin films on a game that meets the safety standards for toys from eu gives assurance that their indian business has built years of fun and imaginative safety play double dick cotton natural canvas indian store and totally united floor from super strong materials natural and chemical free color if the items will be ignored are clean fast and gives a nice superego design fits perfectly to every permanent d corself fold stollen not completely jaw need to print setting screw simply insert the canvas tipi thick put the poles wood then the cord wrapped increased security and tried the game appears in 5 minutes and the same vitess folded e all without the need for piles or anchors so that your child the perfect place did conceal read nap drill or play two with the child in tends or utdoors 1 6 feet tall with a base and friend to play outdoors and compact enough to be a magical touch to bedroomsbuilt 1 2 x 1 2 meters store your tent indian child is big enough to add for all ages 3 10 years in the bottom window bag his indicators sure check the pictures you find that your child canicove tepee is built from the ground up for fun your child will love to decorate with flags to store books in your pocket toy when the story inspired integrated and enjoy a quick setup tipi which is perfect for kids who hide to visit or to sleep a clean and tidy surplus
+- AWARD WINNING TEEPEE TENT FOR KIDS: Designed from rugged natural materials such as thick stitched canvas, hard wearing safety cord & sturdy poles - no brittle plastic, or  sheets for a play tent that meets EU Toy Safety Standards.  This will give you peace of mind that your Teepee is safe for your little ones to enjoy fun, imaginative, pretend play.
+
+- DOUBLE THICKNESS NATURAL COTTON CANVAS: This Teepee is made from super strong, naturally coloured, and chemical-free canvas is resistant to the elements, cleans up easily, and gives you a cute design.
+
+- SELF STANDING & FOLDABLE: With fully threaded pine poles there is no need to “force fit” assembly - simply unfold the thick canvas teepee, insert the smooth wooden poles, then wrap the reinforced safety cord and your play tent pops up in 5-Minutes (and folds away just as fast), all without the need for stakes or anchors - so your child has the perfect place to hide, read, nap, peek out, or play
+
+- 2 KID INDOOR OUTDOOR TENT: 1.6 metres tall with a 1.2 x 1.2 metre base, your Kids Teepee Tent is large enough for any 3-10 year old (and a friend) to play outdoors, and yet compact enough to add a magical touch to your child’s bedrooms
+BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will notice how your Canicove Kids Teepee is built from the ground up for playtime fun; Your child will enjoy decorating with the flags, storing books inside the built-in pocket for inspired story time, and you will enjoy a quick set-up teepee that is perfect for visiting children, sleep overs, or to hide toys for a clean and tidy room
 
 ### Our Rating For This Product
 
