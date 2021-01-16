@@ -645,15 +645,21 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Kids Teepee Tent Foldable Children Play
+## Kids Teepee Tent Foldable Children Play Tent
 
-[![null](<https://images-eu.ssl-images-amazon.com/images/I/51nxIczSCOL.__AC_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07KPVXDW2/?tag=kidsteepees-21>)
+[![kids-teepee-tent-foldable](<https://images-eu.ssl-images-amazon.com/images/I/51nxIczSCOL.__AC_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07KPVXDW2/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07KPVXDW2/?tag=kidsteepees-21>)
+[![kids-teepee-tent-foldable](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07KPVXDW2/?tag=kidsteepees-21>)
 
 ### Product Description
 
 - **UNIQUE DESIGN** size: 51.18”x39.37”x51.18 ” (130* 100 *130CM), materials : Thickened  oxford fabric. Children can play in freely in this tent without worrying about it will fall apart.
+
+- **MADE OF NATURAL PREMIUM DURABLE MATERIALS** 100% natural, non-toxic, unpainted, extra safe, breathable thick stitched cotton canvas; Tent Poles: The tent poles are made of sturdy pine wood and are free of chemical odors and harmful substances. These handmade 4-sided teepees play tents are made with the highest standards - no brittle plastic, and thin sheets for a play tent that meets EU Toy Safety Standards.
+
+- **SELF-STANDING PROTABLE & FOLDABLE**
+
+Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm (L) X 120cm (W) X 150cm (H).
 
 ### Our Rating For This Product
 
@@ -661,19 +667,11 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ### Technical Details
 
-| Product Dimensions           | 130 x 100 x 130 cm; 1.76 Kilograms |
-|------------------------------|------------------------------------|
-| Manufacturer recommended age | 3 years and up                     |
-| Manufacturer reference       | Y604                               |
-| Number of Game Players       | 4                                  |
-| Number of Puzzle Pieces      | 1                                  |
-| Batteries Required?          | No                                 |
-| Batteries Included?          | No                                 |
-| Material Type(s)             | 600D Oxford Fabric                 |
-| Radio Control Suitability    | Camping                            |
-| Color                        | Flower Pink                        |
-| Mfg Recommended age          | 3 year and up                      |
-| ASIN                         | B07XDF9N74                         |
+| Package Dimensions | 48 x 24 x 12.2 cm; 3.08 Kilograms |
+|--------------------|-----------------------------------|
+| Material Type(s)   | Cotton                            |
+| Color              | White Elephant                    |
+| ASIN               | B07KPVXDW2                        |
 
 ### Customers Say about this product
 
@@ -697,16 +695,21 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ### Product Description
 
- item inside climbers playhouse this fun outside if you are looking for each child for the ultimate gift to win their creative years of playing time the tent the hearts and attention i suggest you watch your children your tipi leave with the water based paint or oil or acrylic stickers or light strands you can read books stories put their imagination and play alone with a friend or a brother in the wigwam wigwam teepee ask your child can feel from privacy fun game structures tents enjoy easy children in light of the tent playing to assemble size standing permanent 120cm l x 120 cm w x 150 cm h the tipi child may be or larger or small wooden rods together approach completely separated big enough our children tipi tent is big enough for 2 years and older and a friend for outdoor play however compact compact enough room a magical touch to the room to add your child for all parts and corner wood premium sustainable natural stores toy materials the tipi is of children landscape children 100 non toxic not painted of course extra secure fabric sewn cotton thick breathable made tent poles the tent poles of pine resistance and are produced free of odors and harmful chemicals these teepees four sides of the hand play tents are made with the highest standards not brittle plastic and film for a game to store toys eu safety standards to meet ensures that long term self supporting and movable use folding with pine poles have not fully exploited adjustment of the force assembly simply implement the thick canvas tipi enter the wooden poles and an envelope security cable and the tent of the game will be released in 5 minutes and turn at the same speed upgraded all without the need for inserts or anchor points so your child the ideal place is to hide to read nap watch or space and playing staff while parents can control great gift for your bag kids installed windows flap when you extract the images you will notice that your business is built indian children from the ground up for fun perhaps you enjoy your child decorating storage paperbacks inside when the story inspired integrated and you can have a surplus of set up quickly tipis is perfect sleep or enjoy sharing secrets or even save your toys clean room tents and tidy it gives you rest and make your shop safes indians fun and imaginative play space was built
 
 ### Our Rating For This Product
 
 4.5 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions  | 50 x 20 x 11 cm; 3.3 Kilograms |
+|---------------------|--------------------------------|
+| Batteries Required? | No                             |
+| Material Type(s)    | Cotton                         |
+| Color               | Pink Elephant                  |
+| ASIN                | B07RWWT63B                     |
 
 ### Customers Say about this product
 
