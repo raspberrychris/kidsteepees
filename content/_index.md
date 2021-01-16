@@ -364,43 +364,49 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Treebud Kids Teepee Tent  Girls
+## Treebud Kids Teepee Tent
 
-[![null](<https://images-eu.ssl-images-amazon.com/images/I/A1l4x7B50ZL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/TreeBud-Teepee-Indoor-Outdoor-Childrens/dp/B087BY576F/?tag=kidsteepees-21>)
+[![treebud-kids-teepee-tent](<https://images-eu.ssl-images-amazon.com/images/I/A1l4x7B50ZL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/TreeBud-Teepee-Indoor-Outdoor-Childrens/dp/B087BY576F/?tag=kidsteepees-21>)
 
 [![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/TreeBud-Teepee-Indoor-Outdoor-Childrens/dp/B087BY576F/?tag=kidsteepees-21>)
 
 ### Product Description
 
- hard and durable material the tipi tent made children cloth pure and ethereal soft and strong pole top jaw is very nice then our additional reinforcement kit is used to store and silicon cover to slide strengthen stability and security of the fictional game structure tent this is an aesthetic of growth cab with room to help children in all directions every kid wants to have around their own private space where they can play read sleep and relax learn independently and communicative to be know how to give and to share here s the interesting indian tepee is not only a life of aesthetic attitude but also a secret car to accompany the child growth and development of children 3t foldable portable potential to save the game have a length of less than 43 3 inches and a height of 63 inches mounted it is lightweight and easy to install similarly they are easy to remove and fold and eat with a carrying case the portability and practical tip pure esta favorite theater is your child with teepees you sole take cable design covers black lace fabric hollow beautiful flowers the upper part of the door and the curtain adjustment cord that very elegant and perfect gift luxurious looks covered this cute white lace see shop is suitable for decoration everywhere not only beautiful for your children to play or rest but also a decoration for children s bedroom or nursery in addition it can be used inside and outside his for birthday parties festive ceremonies and even wedding decorations and other scenes of valentine order bouquet as shown nice extra
+- **STURDY & DURABLE** This Treebud kids teepee tent is made of sheer lace fabric & smooth and strong pine wood poles. It uses extra reinforcement and has a silicone anti-skid sleeve to increase the stability & safety of the play tent.
+
+- **PORTABLE & FOLDABLE** The assembled play tent has a bottom length of 43.3 inches and an overall height of 63 inches. It is lightweight and easy to put together.
+
+- **UNIQUE LACE DESIGN** White lace fabric is covered with flowers creating a beautiful finish. The top of the door and the curtain have a draped lace trim, which looks very elegant.
 
 ### Our Rating For This Product
 
-
-
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions           | 91.44 x 20.32 x 7.62 cm; 2.47 Kilograms |
+|------------------------------|-----------------------------------------|
+| Manufacturer recommended age | 3 years and up                          |
+| Manufacturer reference       | CLS-BS                                  |
+| Batteries Required?          | No                                      |
+| Material Type(s)             | 100% sheer lace                         |
+| Colour                        | White                                   |
+| Mfg Recommended age          | 3 year and up                           |
+| ASIN                         | B087BY576F                              |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Gorgeous teepee, really good quality and easy instructions"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Great look and design |👉 Could be easier to put together  |
+| 👉 Well made |👉 Style over practicality?  |
+| 👉 Good price |👉 There are better teepees  |
 
 ---
-
 
 ## Uniquevc Kids Princess Play Tent Indoor
 
