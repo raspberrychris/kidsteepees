@@ -695,6 +695,8 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ### Product Description
 
+- **MADE OF NATURAL PREMIUM DURABLE MATERIALS**
+- **BUILT-IN POCKET & FLAP WINDOW**
 
 ### Our Rating For This Product
 
@@ -713,22 +715,17 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ### Customers Say about this product
 
->  
-
-
+>  "Grandaughter is in love with it. For the price it could of come with an accessory maybe a pillow or lights would be good, rather expensive for a tippee but it is good quality and sturdy."
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Come with a linen storage bag |👉 Could come with more accessories  |
+| 👉 Looks great with accessories |👉 Quite expensive  |
+| 👉 Beautiful looking teepee |👉 Some customers report holes in the netting  |
 
 ---
-
 
 ## Aniikiss 6' Giant Canvas Kids Play
 
