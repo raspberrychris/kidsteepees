@@ -52,8 +52,9 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 >  "I have been looking at various children's teepees for quite some time trying to find a good quality one without having to pay an extortionate amount of money. I'm delighted I finally found this one. Its a good, large size, it easily fits two children. My child is four, and this will last for several more years size wise. Its made from good quality, thick cotton, which feels like linen, so it won't rip. It holds it shape perfectly because of its design. Its a blank canvas so to speak, which I'm very happy with as we can decorate it how we want or just leave it blank. I would definitely recommend it."
 
+#### Top for Fun!
 
-
+[![null](<https://m.media-amazon.com/images/S/aplus-seller-content-images-us-east-1/A1F83G8C2ARO7P/A201BWN6Y2H7O4/2f288304-715b-4fdf-a451-4ecf279db1dc._CR0,0,300,400_PT0_SX300__.jpg)]
 
 ### Pros and Cons
 
