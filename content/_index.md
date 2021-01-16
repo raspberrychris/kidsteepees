@@ -601,7 +601,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Peradix Kids Teepee Tent Foldable
+## Peradix Kids Teepee Tent Foldable  - (RECOMMENDED!)
 
 [![peredix-kids-teepee-tent-foldable](<https://cache.ndnb.live/a3c34b32cc3924d758b566f92390c55f505ab0b3/0f8f43d0-578b-11eb-800c-cfe592f4f37a.jpeg>)](<https://www.amazon.co.uk/Peradix-Foldable-Portable-White-Grey-Playhouse/dp/B088ND5LLK/?tag=kidsteepees-21>)
 
@@ -609,35 +609,41 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ### Product Description
 
-sinking anti designed perfect christmas gift for your child stronger than other update shops please note carpets and outsourced american indians sewn together improve only the stability of the tent but also prevent children from direct contact with the ground eliminate the risk of collapse of the tent when your child uses the product manual may be an older version if you have questions you can contact us at any time and all the games of support wonderful tepee tipi store peradix supply size is 126x126x150 cm adults can stay without problems inside offers enough space for the children so to read in the living room playroom or nursery it can be used outdoors in fine weather we offer also 8 triangular markings you can wear your own playhouse easy and easy to install and can be mounted quickly and easily remove decorate according to our instructions pack size 50x35x12cm all parts can be kept in the suitcase easy to carry the neutral design is very suitable for the children to decorate if you have any questions please do not hesitate to contact us peradix provides a complete service for the customer to ensure their quality always satisfaction high materials peradix teepee made of cotton fabric 8 oz it is durable and the support bar is permanently pine logs he was not treated chemically colored or otherwise children do not have tents conical irritating odor they are environmentally friendly and are excellent materials providing a safe environment for children of all customers ventilation perfect birthday present christmas gift good the swinging doors and windows with drawstring ventilation offer children and visibility the window on the side of the monitor store of parents and children in the family communication while improving the environment and the interaction between parents and children which also increases the pleasure this beautiful conical tent is the perfect gift for christmas and birthdays very child sleeping area
+- **EASY TO TRANSPORT AND ASSEMBLE** Easy to carry &  to assemble.  This Teepee can be assembled and disassembled quickly and easily using our instructions. Folded size: 50x35x12cm, all parts can be stored in our suitcase, making it easy to carry around. T
+
+- **HIGH QUALITY MATERIALS** The Peradix Tipi is made of 8-ounce cotton canvas. It is durable and the support rod is durable pine logs. It has not been dyed or otherwise chemically treated. Children's conical tents have no irritating smell, are environmentally friendly, and have excellent materials.
+
+- **GREAT VENTILATION** The hinged door with drawstring and window provides children with good ventilation and visibility. The window next to the store keeps parents and children in communication while enhancing the family atmosphere and parent-child interaction, which also increases the fun.
 
 ### Our Rating For This Product
 
 4.5 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions     | 93 x 14.48 x 10.92 cm; 2.76 Kilograms |
+|------------------------|---------------------------------------|
+| Manufacturer reference | P466841                               |
+| Batteries Required?    | No                                    |
+| Batteries Included?    | No                                    |
+| Color                  | Grey-white                            |
+| ASIN                   | B088ND5LLK                            |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Easy to assemble, good size and sturdy. It doesn’t have anything in the base to keep the shape but we used cushions to stop it moving which worked well. Good value for money too"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Hard wearing & Durable |👉 Some have found assembly difficult  |
+| 👉 Packaged well and good value |👉 Heavier than other teepees  |
+| 👉 Big enough for two children |👉 Requires two people to assemble  |
 
 ---
-
 
 ## Kids Teepee Tent Foldable Children Play
 
