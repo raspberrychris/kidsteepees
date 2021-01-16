@@ -1,10 +1,10 @@
 +++
 title = "Privacy Policy"
-description = "Kidsteepees.co.uk is the #1 source for finding the best music stands"
+description = "Kidsteepees.co.uk is the #1 source for finding the best kids teepees"
 date = "2019-02-28"
-aliases = ["about-us","about-music-stands"]
+aliases = ["about-us","about-kids-teepees"]
 author = "Kidsteepees.co.uk"
-menu = "footer"
+menu = "main"
 weight = 5
 +++
 
