@@ -116,7 +116,7 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 ---
 
 
-## Funwithmum Teepee Tent  Children Tipi
+## Funwithmum Teepee Tent Children's Tipi
 
 [![null](<https://cache.ndnb.live/f3af9c5010d1f22a7510378992dc962a4aea118f/a47517e0-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01NH37AO4/?tag=kidsteepees-21>)
 
@@ -124,20 +124,39 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 ### Product Description
 
-it will be great for every season a tent itemtepee cache of your child it will be perfect for home patio balcony or garden he will do everything in beautify and comfortable it can contain only children but also parents happy to be a bedtime story the small tent is easy to read and easy to fold so you wear free and can move it consists of two pieces of fabric colors it has joined a nice windows and shutters inside there are two bags used for small treasures materials high quality cotton wood pools floor mats compliance polyester nonwovens dimensions cm 150 unfolded size foot width 100 100 cm square package includes 1x tepee floor mats 1x 3x pillows 4x wooden pool 1x instruction
+- **GREAT HIDEOUT**  This Teepee tent will make a great hideout for your child any time of the year.
 
+- **PERFECT ANYWHERE** It will be perfect for your house, flat, patio, balcony or garden. It will embellish any interior and make it cozy.
+
+- **PERFECT FOR PARENT & CHILD** This teepee is roomy meaning a parent and child can fit inside with no problems
+
+- **LIGHTWEIGHT** The tent is lightweight and can fold and collapse easily for transportation.
+
+- **HIGH QUALITY MATERIALS** High quality cotton; Wooden pools; Floor Mat fulfillment: Non-woven polyester
+
+Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
+Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x Instruction
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 100 x 100 x 180 cm; 4 Kilograms |
+|------------------------------|---------------------------------|
+| Manufacturer recommended age | 12 months and up                |
+| Assembly Required            | No                              |
+| Batteries Required?          | No                              |
+| Batteries Included?          | No                              |
+| Material Type(s)             | Polyester, Cotton               |
+| Remote Control Included?     | No                              |
+| Mfg Recommended age          | 12 months and up                |
+| ASIN                         | B01NH37AO4                      |
 
 ### Customers Say about this product
 
->  
+>  "Fabulous item! Time takin in making the product. Fast delivery. If grandaughter wont play in it i will!"
+
 
 
 
