@@ -129,6 +129,7 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 - **HIGH QUALITY MATERIALS** High quality cotton; Wooden pools; Floor Mat fulfillment: Non-woven polyester
 
 Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
+
 Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x Instruction
 
 ### Our Rating For This Product
@@ -269,12 +270,11 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ## Arkmiido Kids Teepee Play Tent Foldable
 
-[![null](<https://images-eu.ssl-images-amazon.com/images/I/51u%2B-6lKVfL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Arkmiido-Teepee-Foldable-Playhouse-Outdoor/dp/B08C2M6P5D/?tag=kidsteepees-21>)
+[![arkiido-kids-teepee-play-tent-foldable](<https://images-eu.ssl-images-amazon.com/images/I/51u%2B-6lKVfL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Arkmiido-Teepee-Foldable-Playhouse-Outdoor/dp/B08C2M6P5D/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Arkmiido-Teepee-Foldable-Playhouse-Outdoor/dp/B08C2M6P5D/?tag=kidsteepees-21>)
+[![arkiido-kids-teepee-play-tent-foldable](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Arkmiido-Teepee-Foldable-Playhouse-Outdoor/dp/B08C2M6P5D/?tag=kidsteepees-21>)
 
 ### Product Description
-
 
 - **GREAT DESIGN** Stars & window style and curtains make children think of the starry sky, everyone is a planet, encourage children to be more independent and learn to respect others. This teepee tent is also very suitable for taking pictures, leaving traces of kids’ growth.
 
@@ -302,8 +302,6 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 >  "Good quality 👌 My daughter absolutely loves it!
 Very spacious easy to assembly! Definitely recommend" 👍
 
-
-
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
@@ -322,7 +320,15 @@ Very spacious easy to assembly! Definitely recommend" 👍
 
 ### Product Description
 
-this method itemhigh print 250 g ms heavy canvas cotton which is very thick durable and does not harm the environment if away high russian quality introductions wood frame wood smooth it will not hurt them hands when touched because russia is much colder while in all other plants do not grow very slowly and the wood would be much stronger than wood from other regions our tipis diameter of the post is 24 mm and is strong enough to ensure the safety of children and not easy break size big enough for 3 children within 43 l x43 w x 64 spielen h during assembly suitable for children 3 7 years children can have inside in a dream hide and read inside esta is like a tepee four pole positions inside are big enough for two children to play inside easy to assemble we statement in the package can you assemble the tipi easily the instruction easy to store and carry read it comes with a carrying case in the packaging you can fold the tepee and store in the carrying case when not in use once you leave and for some sports you can easily take the bag
+- **HIGH-QUALITY CANVAS**: 250 G/SM heavy cotton canvas, which is very thick, durable and won't harm the environment when thrown away.
+
+- **HIGH-QUALITY RUSSIAN WOOD FRAMES**: Smooth wood, it won't hurt your hands when touching. Because Russia is much colder in whether than anywhere else, plants there grow very slowly and the wood there would be much stronger than wood from other areas. Our teepee pole Diameter is 24 mm and is strong enough for kids safety and not easy to break.
+
+- **SIZE BIG ENOUGH FOR 3 KIDS PLAYING INSIDE**: 43''(L)x43''(W)x64''(H) when assembling, it is suitable for kids aged 3-7 years old. Kids can hide inside, sleep inside, and read inside. As this is a 4 poles teepee, area inside are big enough for 2 kids play inside.
+
+- **EASY TO ASSEMBLE**: We put the instruction inside the packing, you can assemble the teepee without difficulties by reading the instruction.
+
+- **EASY TO STORE AND TAKE ALONG**: It comes with a carry bag inside the packing. You can fold the teepee and stock it inside the carry bag when you don't use it. Once you go out and for some sports, you can take it along with the carry bag easily.
 
 ### Our Rating For This Product
 
@@ -332,25 +338,31 @@ this method itemhigh print 250 g ms heavy canvas cotton which is very thick dura
 
 ### Technical Details
 
+| Product Dimensions       | 155.96 x 100.08 x 100.08 cm; 3.35 Kilograms |
+|--------------------------|---------------------------------------------|
+| Assembly Required        | No                                          |
+| Batteries Required?      | No                                          |
+| Batteries Included?      | No                                          |
+| Material Type(s)         | Wood, Canvas, Cotton                        |
+| Remote Control Included? | No                                          |
+| Color                    | White                                       |
+| ASIN                     | B07K7FZBGG                                  |
 
 ### Customers Say about this product
 
->  
-
-
+>  "The material is very good quality and I love the design.
+It took me 5 min to build and with the bag it makes it very easy to take to the garden or the outdoor trips.
+The size is enough for 2-3 children to play inside and the children absolutely loves it"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Good quality materials |👉 Not as pictured for some customers  |
+| 👉 High quality design & Good size |👉 Expensive  |
+| 👉 Easy setup and looks good |👉 More light cream than white colour  |
 
 ---
-
 
 ## Treebud Kids Teepee Tent  Girls
 
