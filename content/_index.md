@@ -735,35 +735,41 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ### Product Description
 
-about this space itemlarge children the amount of memory is with a side length of 49 2 height fabric 53 1 top large 59 length of 72 4 pole your child can easily install a large and interesting independent space for rest and recreation fast and the package can only 2 rooms with 8 pin through a connector are assembled you can move up or fold it in minutes without tools the tent kit comes with an anti flaccid hold is not simply the tent when your child sentenced collide tent a great gift for children to fail floral lace design door window and pleasant this memory is for any activity such as games story time nap baby shower and helping the child s imagination tents present creates a safe game with a side window securely monitor can parents children package 1 x cotton canvas tent wooden poles connections 8 x 4 x 1 x carrying case 1 x anti dive kit 4 x pole slip rubber mat it can be folded and everyone wants to pack for bag international products have separate conditions are sold abroad and can of local products including the setting distinguish the age limit and product labeling or instructions language
+- **Large Space for Child** The tent size is with side length 49.2", fabric height: 53.1", top height 59", pole length 72.4". Your child can own a large independent and interesting space for rest and recreation.
+
+- **Fast and Easy to Assemble** The package comes with 8 poles which 2 parts can be assembled by a connector. You can set up or fold it within several minutes without tools required. The tent comes with a anti-collapse kit which keep the tent not easy to fall down if your child collide the tent.
+
+- **FANTASTIC FLORAL DESIGN** Beautiful Floral lace design for the door and window.
 
 ### Our Rating For This Product
 
 4.5 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand              | AniiKiss                                    |
+|--------------------|---------------------------------------------|
+| Model Number       | 43235-159937                                |
+| Colour             | White                                       |
+| Product Dimensions | 124.46 x 124.46 x 149.86 cm; 2.83 Kilograms |
+| Material           | Canvas, Rubber                              |
+| Item Weight        | 2.83 kg                                     |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Bought this for my 1 year old’s photo shoot and it looked absolutely amazing!! Now i have it in her room and looks really pretty!"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Gorgeous style |👉 Customers report it collapsing easily  |
+| 👉 Bit small |👉 Not that easy to assemble compared to other teepees  |
+| 👉 Cute design and good price |👉 Customers report of sewing issues  |
 
 ---
-
 
 ## Kids Teepee Children Game Playhouse Tent
 
