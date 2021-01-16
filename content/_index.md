@@ -54,7 +54,7 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 #### Top for Fun!
 
-[![null](<https://m.media-amazon.com/images/S/aplus-seller-content-images-us-east-1/A1F83G8C2ARO7P/A201BWN6Y2H7O4/2f288304-715b-4fdf-a451-4ecf279db1dc._CR0,0,300,400_PT0_SX300__.jpg)]
+![teepee-award](https://m.media-amazon.com/images/S/aplus-seller-content-images-us-east-1/A1F83G8C2ARO7P/A201BWN6Y2H7O4/2f288304-715b-4fdf-a451-4ecf279db1dc._CR0,0,300,400_PT0_SX300__.jpg)
 
 ### Pros and Cons
 
@@ -77,7 +77,13 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 ### Product Description
 
-this itemdurable barrel cover cover tipis sustainable boppi with tiebacks thresholds canvas for entrance wooden slot pole frame open or closed a marco polo wooden slot offers building safe while the children play the lid has run sections sewn slot pole simple and easy saver bag carry assembly space corduroy carrying case allows the possibility of a compact storage and transportation to the park or play memory dates easy store a the simple polt slot way distance and height to allow to reduce the tent for storage or transport carry bag dimensions height 160 cm quadratic base width 120 cm x 120 cm height of the carrying bag 1 meter
+- **DURABLE CANVAS COVER** – A durable canvas boppi teepee cover with doorway tie-backs for an open or closed entrance.
+
+- **SPACE SAVER CARRY BAG** – A drawstring carry bag allows for a space saving storage option and compact transportation to the park or play-dates.
+
+- **EASY STORAGE** – The easy connect poles make dismantling simple and allow for the tent height to be reduced for storage or transporting in the carry bag.
+
+- **DIMENSIONS** – Height: 160cm - Square Base Width: 120cm x 120cm – Carry Bag Height: 1 metre.
 
 ### Our Rating For This Product
 
@@ -87,22 +93,25 @@ this itemdurable barrel cover cover tipis sustainable boppi with tiebacks thresh
 
 ### Technical Details
 
+| Item Weight                  | 3 Kilograms         |
+|------------------------------|---------------------|
+| Manufacturer recommended age | 36 months - 8 years |
+| Material Type(s)             | Canvas              |
+| Color                        | Grey & White        |
+| Mfg Recommended age          | 36 months - 8 years |
+| ASIN                         | B08NW5S2G4          |
 
 ### Customers Say about this product
 
->  
-
+> "Great value for money, I bought them for my 13 year old and her brother to celebrate her birthday, they are big, very easy to assemble, great quality and the kids loved them. They are also easy to put away and dont take up much room to store . Easily transported. Love them thanks 😁 I added lights to make it look special"
 
 
 ### Pros and Cons
-
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Big and Roomy |👉 Not suitable for leaving outdoors  |
+| 👉 Easy to fold away |👉 Build Quality could be improved  |
+| 👉 Perfect Den for Children |👉 Some Customers report splinters  |
 
 ---
 
