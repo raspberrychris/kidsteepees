@@ -30,7 +30,6 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 ### Our Rating For This Product
 
-
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
@@ -64,16 +63,13 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 | 👉 Perfect for tall children |👉 Not suitable for children under 3  |
 | 👉 Can be used outdoors on sunny days |👉 Not waterproof or weather proof  |
 
-
-
 ---
-
 
 ## Boppi® Teepee Play Tent Large Outdoor
 
-[![null](<https://cache.ndnb.live/e2b9c65fdadf42adafeed3dd12a5d89796891a53/1865af80-578b-11eb-8f43-6dbe63856760.jpeg>)](<https://www.amazon.co.uk/boppi%C2%AE-Outdoor-Portable-Childrens-Playhouse/dp/B08NW5S2G4/?tag=kidsteepees-21>)
+[![boppi-teepee-play-tent-large-outdoor](<https://cache.ndnb.live/e2b9c65fdadf42adafeed3dd12a5d89796891a53/1865af80-578b-11eb-8f43-6dbe63856760.jpeg>)](<https://www.amazon.co.uk/boppi%C2%AE-Outdoor-Portable-Childrens-Playhouse/dp/B08NW5S2G4/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/boppi%C2%AE-Outdoor-Portable-Childrens-Playhouse/dp/B08NW5S2G4/?tag=kidsteepees-21>)
+[![boppi-teepee-play-tent-large-outdoor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/boppi%C2%AE-Outdoor-Portable-Childrens-Playhouse/dp/B08NW5S2G4/?tag=kidsteepees-21>)
 
 ### Product Description
 
@@ -105,7 +101,6 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 > "Great value for money, I bought them for my 13 year old and her brother to celebrate her birthday, they are big, very easy to assemble, great quality and the kids loved them. They are also easy to put away and dont take up much room to store . Easily transported. Love them thanks 😁 I added lights to make it look special"
 
-
 ### Pros and Cons
 | ✅  Pros | ❌ Cons |
 |-|-|
@@ -115,27 +110,27 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 ---
 
-
 ## Funwithmum Teepee Tent Children's Tipi
 
-[![null](<https://cache.ndnb.live/f3af9c5010d1f22a7510378992dc962a4aea118f/a47517e0-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01NH37AO4/?tag=kidsteepees-21>)
+[![funwithmum-teepee-tent-childrens-tipi](<https://cache.ndnb.live/f3af9c5010d1f22a7510378992dc962a4aea118f/a47517e0-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01NH37AO4/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01NH37AO4/?tag=kidsteepees-21>)
+[![funwithmum-teepee-tent-childrens-tipi](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01NH37AO4/?tag=kidsteepees-21>)
 
 ### Product Description
 
-- **GREAT HIDEOUT**  This Teepee tent will make a great hideout for your child any time of the year.
+- **GREAT HIDEOUT**  This Teepee tent will make a great hideout for your child at any time of the year.
 
 - **PERFECT ANYWHERE** It will be perfect for your house, flat, patio, balcony or garden. It will embellish any interior and make it cozy.
 
 - **PERFECT FOR PARENT & CHILD** This teepee is roomy meaning a parent and child can fit inside with no problems
 
-- **LIGHTWEIGHT** The tent is lightweight and can fold and collapse easily for transportation.
+- **LIGHTWEIGHT AND STURDY** The tent is lightweight and can fold and collapse easily for transportation.
 
 - **HIGH QUALITY MATERIALS** High quality cotton; Wooden pools; Floor Mat fulfillment: Non-woven polyester
 
 Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x Instruction
+
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -187,7 +182,7 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 4.6 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
@@ -220,43 +215,57 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ---
 
-## Badabulle Indoor Or Outdoor Tipi |
+## Badabulle Indoor Or Outdoor Tipi
 
-[![null](<https://cache.ndnb.live/2184e2ab0cc7b71268f453bddc67444ce3142349/1eaac1f0-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
+[![badabulle-indoor-or-outdoor-tipi](<https://cache.ndnb.live/2184e2ab0cc7b71268f453bddc67444ce3142349/1eaac1f0-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
+[![badabulle-indoor-or-outdoor-tipi](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this itemready in 5 minutes teepees this child is really easy to drive it takes only 5 minutes to set up 4 pins are provided to hold it firmly in place on the floor on the size of the external uselarge these teepees high and 1 20 m 1x1m on the floor your child can play alone or siblings or friends and with mattresses until comfort the mattress must face fleece and waterproof side for protection against moisture in the soil this removable mattress 1 m and upf 50 uv use separatelyanti does your child this tepee protects against harmful sun rays with uv upf 50 fabric properties bring it openings at the base of the teepee for air circulateeasy badabulle tipi can be stored in the carrying bag very light you can take anywhere easily
+- **FAST ASSEMBLY** This child's tepee is super easy to set up and only takes 5 minutes.
+
+- **STURDY TEEPEE** 4 pegs are supplied to hold it firmly in place in the ground for outdoor use
+
+- **SPACIOUS** Large size: this tepee measures 1.20 m high and 1x1m on the ground. Your child can play on their own or with brothers, sisters or friends... And even you!
+
+- **COMFORTABLE**  Comfort mattress: the mattress has one super soft side and one waterproof side to provide protection from dampness in the ground. This removable 1 m² mattress can also be used separately
+
+- **SAFE AND SECURE** Anti-UV UPF50+.  This tepee provides protects your child from the sun's harmful rays with its specially designed anti UV UPF 50+ fabric. There are ventilation holes at the base of the tepee to let the air circulate inside.
+
+- **PORTABLE** Easy to carry: the Badabulle tepee can be stored in the carry bag provided. Really lightweight, you can easily take it anywhere
 
 ### Our Rating For This Product
 
 4.6 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Model Number       | B038000                         |
+|--------------------|---------------------------------|
+| Product Dimensions | 58 x 10 x 30 cm; 1.38 Kilograms |
+| Item model number  | B038000                         |
+| Target gender      | Unisex                          |
+| Material Type      | Polyester                       |
+| Style              | Jungle Teepee                   |
+| Batteries required | No                              |
+| Item Weight        | 1.38 kg                         |
 
 ### Customers Say about this product
 
->  
-
-
+>  "This Teepee ticks all the boxes for an easy to put together indoor/ outdoor children,s play tent to enjoy hours of fun. The fold away poles go together and slide easily into the sleeves to support the tent, 4 pegs for erecting on the grass to secure firmly. A colourful tent that on wet days will amuse the kids indoors and comes supplied with a comfortable fitted mattress which is soft on the top and waterproof base. Not only safe from the sun,s rays there are ventilation holes to let the air circulate on hot days. A far cry from my childhood days of throwing an old blanket over four dining chairs lol. Made slightly larger than some tents we have bought it gives the children a little more room. The tent packs away neatly into it,s own carry bag. I have no hesitation in giving a 5 STAR rating and think it is priced about right.""
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Well Packaged and easy to assemble|👉 Not a 'pop up' tent   |
+| 👉 Comfortable |👉 Mattress not anti slip  |
+| 👉 Highly recommended by customers |👉 Plastic Tent poles could be tougher  |
 
 ---
-
 
 ## Arkmiido Kids Teepee Play Tent Foldable
 
