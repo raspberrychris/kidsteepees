@@ -35,15 +35,18 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 ### Technical Details
 
-|               #               |                                  #                                |                            #                           |                            #                           |                            #                           |                            #                           | #                                                      |
-|:-----------------------------:|:-----------------------------------------------------------------:|:------------------------------------------------------:|:------------------------------------------------------:|:------------------------------------------------------:|:------------------------------------------------------:|--------------------------------------------------------|
-|                               | Tiger Lightweight 0.75kg Music Stand & Carry Bag – Portable Stand | Tiger Portable Easy Folding Sheet Music Stand With Bag | Tiger Portable Easy Folding Sheet Music Stand With Bag | Tiger Portable Easy Folding Sheet Music Stand With Bag | Tiger Portable Easy Folding Sheet Music Stand With Bag | Tiger Portable Easy Folding Sheet Music Stand With Bag |
-|          Model Number         |                              MUS77-BK                             |                        MUS56-BK                        |                        MUS56-BL                        |                        MUS56-RD                        |                        MUS56-PK                        |                        MUS56-CL                        |
-| Minimum Height (floor to lip) |                                49cm                               |                          48cm                          |                          48cm                          |                          48cm                          |                          48cm                          |                          48cm                          |
-| Maximum Height (floor to lip) |                               120cm                               |                          113cm                         |                          113cm                         |                          113cm                         |                          113cm                         |                          113cm                         |
-|            Features           |                 Foldable desk with page retainers                 |       Collapsible desk with sprung page retainers      |       Collapsible desk with sprung page retainers      |       Collapsible desk with sprung page retainers      |       Collapsible desk with sprung page retainers      |      Foldable design, lightweight & page retainers     |
-|            Included           |                         Stand + Carry Bag                         |                    Stand + Carry Bag                   |                    Stand + Carry Bag                   |                    Stand + Carry Bag                   |                    Stand + Carry Bag                   |                    Stand + Carry Bag                   |
-|             Colour            |                               Black                               |                          Black                         |                          Blue                          |                           Red                          |                          Pink                          |                      Multicoloured                     |
+| Product Dimensions           | 121.92 x 121.92 x 160.02 cm; 3.5 Kilograms |
+|------------------------------|--------------------------------------------|
+| Manufacturer recommended age | 3 years and up                             |
+| Manufacturer reference       | TW019                                      |
+| Assembly Required            | No                                         |
+| Batteries Required?          | No                                         |
+| Batteries Included?          | No                                         |
+| Material Type(s)             | Canvas                                     |
+| Remote Control Included?     | No                                         |
+| Color                        | Natural Cotton                             |
+| Mfg Recommended age          | 3 year and up                              |
+| ASIN                         | B078BXNCS5                                 |
 
 ### Customers Say about this product
 
@@ -57,7 +60,7 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 | ✅  Pros | ❌ Cons |
 |-|-|
 | 👉 Fits 2 children, quite roomy! |👉 Indoors only really.  |
-| 👉 Perfect for tall children |👉   |
+| 👉 Perfect for tall children |👉 Safety tested for piece of mind  |
 | 👉 Can be used outdoors on sunny days |👉 Not waterproof or weather proof  |
 
 
