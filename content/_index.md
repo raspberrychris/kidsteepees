@@ -410,47 +410,54 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ## Uniquevc Kids Princess Play Tent Indoor
 
-[![null](<https://cache.ndnb.live/daec0fe87a7c09b2fbf1b1580f45aa34b54e2eb4/54c88470-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
+[![uniquevc-kids-princess-play-tent-indoor](<https://cache.ndnb.live/daec0fe87a7c09b2fbf1b1580f45aa34b54e2eb4/54c88470-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
+[![uniquevc-kids-princess-play-tent-indoor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
 
 ### Product Description
 
- best for children children from private space dream a themself our belonging to the carpa to have princess is the gift of the christmas holidays a great kid halloween children s birthday children for children innovative design to put our tent princess 3 window a good ventilation in this window available tent with 3 our tent is the way you can keep an eye on your child through large windows as a true princess house by our princess store size is 51 x39 x51 and up to 3 children at the same time only the children have their own private place for entertainment reading playing and relaxing in esta auditorium leave more time our tent princess can mom and dad more time for work household chores or fun make up children to be busy leave with joy and enrich the imagination past and improve their children play when creativity package includes toys within the magazine 1xkids store castle princess game with a carrying bag and decorative chain multicolor edled instrucci ny fighting and li bonus ready for bunting decoration colorful banner happy to hang birthday party
+
+- **CONSIDERATE DESIGN** This Princess teepee Tent has 3 windows which allows light for your children and also allows you to keep an eye on them!
+
+- **LARGE SIZE** Our princess tent size is 51”x39”x51 and can accommodate up to 3 kids at the same time, it is enough to let kids have their own private place for entertaining, eading,playing games and relaxing themselves in this playhouse.
+
+- **LEAVE YOU MORE TIME** Our Princess Tent can leave mommy and daddy more time for work, house work or leisure, cause Children can be occupied with fun and also can enrich children's imagination and enhance their creativity when playing toys inside the tent.
+
+- **PACKAGE INCLUDES** 1x Kids Princess Castle Play Tent with carrying bag and instruction and Multicoloured Led Decorative String Lights and Extra Bonus:Ready to Hang Multi-coloured Happy Birthday Banner Bunting For Party Decoration.
 
 ### Our Rating For This Product
 
 4.7 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions     | 54 x 23 x 9 cm; 1.34 Kilograms |
+|------------------------|--------------------------------|
+| Manufacturer reference | ER-FGH                         |
+| Material Type(s)       | Polyester                      |
+| ASIN                   | B08DRFHG5X                     |
 
 ### Customers Say about this product
 
->  
-
-
+>  "The grand daughter went WOW!! Thoroughly enjoyed brill"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Lovely Play tent |👉 Some customers have reported defects  |
+| 👉 Generous size, plenty of room for kids |👉 Takes a while to set up  |
+| 👉 Good quality for the price |👉 Not as easy as a 'pop up' tent  |
 
 ---
 
-
 ## Princess Castle Play Tent Kids Teepee
 
-[![null](<https://cache.ndnb.live/16a5be926eb9c0bdee2167e232b6ca74020a1741/2ebbeab0-578b-11eb-a8b5-f53ffbc71769.jpeg>)](<https://www.amazon.co.uk/princess-Children-Playhouse-Portable-Birthday/dp/B07XDF9N74/?tag=kidsteepees-21>)
+[![princess-castle-play-tent-kids-teepee](<https://cache.ndnb.live/16a5be926eb9c0bdee2167e232b6ca74020a1741/2ebbeab0-578b-11eb-a8b5-f53ffbc71769.jpeg>)](<https://www.amazon.co.uk/princess-Children-Playhouse-Portable-Birthday/dp/B07XDF9N74/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/princess-Children-Playhouse-Portable-Birthday/dp/B07XDF9N74/?tag=kidsteepees-21>)
+[![princess-castle-play-tent-kids-teepee](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/princess-Children-Playhouse-Portable-Birthday/dp/B07XDF9N74/?tag=kidsteepees-21>)
 
 ### Product Description
 
@@ -644,41 +651,47 @@ sinking anti designed perfect christmas gift for your child stronger than other 
 
 ### Product Description
 
- climbers playhouse fun inside if you win this tent for the ultimate gift for any child hearts and creative attention looking years time i suggest you let your kids your teepee with adjust color water based or oil or acrylic stickers or light strands you can read books stories put their imagination and play alone with a friend or a brother in the wigwam wigwam teepee ask your child can feel from privacy fun game structures tents enjoy easy children in light of the tent playing to assemble size standing permanent 120cm l x 120 cm w x 150 cm h the tipi child may be or larger or small wooden rods together approach completely separated big enough our children tipi tent is big enough for 2 years and older and a friend for outdoor play however compact compact enough room a magical touch to the room to add your child for all parts and corner wood premium sustainable natural stores toy materials the tipi is of children landscape children 100 non toxic not painted of course extra secure fabric sewn cotton thick breathable made tent poles the tent poles of pine resistance and are produced free of odors and harmful chemicals these teepees four sides of the hand play tents are made with the highest standards not brittle plastic and film for a game to store toys eu safety standards to meet ensures that long term self supporting and movable use folding with pine poles have not fully exploited adjustment of the force assembly simply implement the thick canvas tipi enter the wooden poles and an envelope security cable and the tent of the game will be released in 5 minutes and turn at the same speed upgraded all without the need for inserts or anchor points so your child the ideal place is to hide to read nap watch or space and playing staff while parents can control great gift for your bag kids installed windows flap when you extract the images you will notice that your business is built indian children from the ground up for fun perhaps you enjoy your child decorating storage paperbacks inside when the story inspired integrated and you can have a surplus of set up quickly tipis is perfect sleep or enjoy sharing secrets or even save your toys clean room tents and tidy it gives you rest and make your shop safes indians fun and imaginative play space was built
+- **UNIQUE DESIGN** size: 51.18”x39.37”x51.18 ” (130* 100 *130CM), materials : Thickened  oxford fabric. Children can play in freely in this tent without worrying about it will fall apart.
 
 ### Our Rating For This Product
 
-
-
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 130 x 100 x 130 cm; 1.76 Kilograms |
+|------------------------------|------------------------------------|
+| Manufacturer recommended age | 3 years and up                     |
+| Manufacturer reference       | Y604                               |
+| Number of Game Players       | 4                                  |
+| Number of Puzzle Pieces      | 1                                  |
+| Batteries Required?          | No                                 |
+| Batteries Included?          | No                                 |
+| Material Type(s)             | 600D Oxford Fabric                 |
+| Radio Control Suitability    | Camping                            |
+| Color                        | Flower Pink                        |
+| Mfg Recommended age          | 3 year and up                      |
+| ASIN                         | B07XDF9N74                         |
 
 ### Customers Say about this product
 
->  
-
-
+>  My 4 year old loves it. Fabric is of good quality too.Our daughter loves to peek through the window. We have family of 4 (2adults 2kids) and we all can fit in. It’s a bit big so you’ll definitely need an area with a lots of space. It also came with star twinkle lights.
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Very spacious |👉 Some Customers have said it is hard to put together  |
+| 👉 Fairly sturdy |👉 Fabric can rip easily  |
+| 👉 Canvas made so no plastic smells |👉 Need a lot of space!  |
 
 ---
 
+## Kids Teepee Tent Foldable
 
-## Kids Teepee Tent Foldable Children Play
+[![kids-teepee-tent-foldable](<https://cache.ndnb.live/4ee79ef85aecf97fcf4bbfb898748ae3769ef0d6/201e0100-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
 
-[![null](<https://cache.ndnb.live/4ee79ef85aecf97fcf4bbfb898748ae3769ef0d6/201e0100-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
+[![kids-teepee-tent-foldable](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
 
 ### Product Description
 
