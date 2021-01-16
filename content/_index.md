@@ -1,4 +1,4 @@
-resistant---
+---
 title: Welcome to kidsteepees.co.uk!
 type: top
 toc: true
