@@ -368,7 +368,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 [![treebud-kids-teepee-tent](<https://images-eu.ssl-images-amazon.com/images/I/A1l4x7B50ZL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/TreeBud-Teepee-Indoor-Outdoor-Childrens/dp/B087BY576F/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/TreeBud-Teepee-Indoor-Outdoor-Childrens/dp/B087BY576F/?tag=kidsteepees-21>)
+[![treebud-kids-teepee-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/TreeBud-Teepee-Indoor-Outdoor-Childrens/dp/B087BY576F/?tag=kidsteepees-21>)
 
 ### Product Description
 
@@ -453,45 +453,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Princess Castle Play Tent Kids Teepee
-
-[![princess-castle-play-tent-kids-teepee](<https://cache.ndnb.live/16a5be926eb9c0bdee2167e232b6ca74020a1741/2ebbeab0-578b-11eb-a8b5-f53ffbc71769.jpeg>)](<https://www.amazon.co.uk/princess-Children-Playhouse-Portable-Birthday/dp/B07XDF9N74/?tag=kidsteepees-21>)
-
-[![princess-castle-play-tent-kids-teepee](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/princess-Children-Playhouse-Portable-Birthday/dp/B07XDF9N74/?tag=kidsteepees-21>)
-
-### Product Description
-
-this unique design size 51 18 x39 37 x51 18 130 100 130 cm material 600d oxford fabric thickening contrary simply break outside of the castle and wigwam decoration our business is a lot robust and as in real house children i can release thoughts without playing that it will come easy to install only 2 3 minutes need your child to build a house of love to help the theater is to install only three steps with our lessons delivery carries with case for storage or to disassemble along replaced wear anywhere favorite store your child with you gift for children dream child to have their own space belonging an attempt is made the children as a gift more happy birthday great christmas gift for halloween or friends of children multi perfect size is suitable for children and for hiking outdoor camping and other activities to play a variety of occasions such as birthday parties picnics bar cues parks playgrounds kindergartens schools carnival and nights service satisfatory 100 guarantee of customer satisfaction youfang products are guaranteed for 12 months if you have a problem about our products please do not hesitate to contact us we are always there to help
-
-### Our Rating For This Product
-
-4.5 out of 5 stars
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
->  
-
-
-
-### Pros and Cons
-
-| ✅  Pros | ❌ Cons |
-|-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
-
----
-
-
-## Triclicks Kids Teepee Play Tent -
+## Triclicks Kids Teepee Play Tent
 
 [![null](<https://cache.ndnb.live/d4a18a5865c89a14291ad0355d81bc369d054428/3f552f30-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
 
@@ -499,68 +461,92 @@ this unique design size 51 18 x39 37 x51 18 130 100 130 cm material 600d oxford 
 
 ### Product Description
 
-on this subject for your children perfect gift to open the loop at the gate of children teepees and close the door used children are also getting ready to take the space and esta magazine of the game staff is just enough to meet the minds of children they play without being thought durable and resistant 100 cotton durable and sturdy wood material cut 120 cm x 120 cm x 150 cm height portable folding easy to assemble and the tipi when it is near used or not to use it it is very easy to clean tipi or the house to move at any time perfect for children inside or outside package includes 1 set of instructions with teepees do not include pompon decor and clouds straw mat washing care to wash the water temperature below 40 it should be
+- **PERFECT PRESENT FOR YOUR KIDS: The lacing at the door of the kids teepee is used to open and close the entrance. The children are also eager for personal space, and this play tent is just enough to satisfy the children’s ideas to let them play without worry.
+
+- **DURABLE & STURDY: 100% Durable cotton canvas and sturdy wood material. Size: 120 cm x 120 cm x 150 cm (height).
+
+- **PORTABLE & FOLDABLE: Easy to assemble and close up the teepee when you use or not use it. It is very convenient for you to move the teepee or clean the house at any time. Perfect for children indoors or outdoors.
+
+- **PACKAGE INCLUDES: 1 set teepee with manual. (Not include the cloud / pompom / raindrop decoration and floor mat).
+
+- **Wash Care: Machine washable. Water temperature must be below 40 ℃
 
 ### Our Rating For This Product
 
 4.5 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions       | 48.1 x 23.9 x 12.5 cm; 2.93 Kilograms |
+|--------------------------|---------------------------------------|
+| Assembly Required        | No                                    |
+| Batteries Required?      | No                                    |
+| Batteries Included?      | No                                    |
+| Material Type(s)         | Wood                                  |
+| Remote Control Included? | No                                    |
+| ASIN                     | B07KMQ2RVL                            |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Absolutely amazing. Couldn’t be happier with it. Needed a good iron & a little tricky to put up. Took 2 of us but so so pleased with the quality & the overall look of it for the price is incredible.""
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Perfect Canvas to build on your design |👉 Doesn't come with the mat or base  |
+| 👉 Easy to decorate |👉 Not that sturdy and customers have reported the item collapsing   |
+| 👉 Price is great |👉 Customers have reporting missing parts  |
 
 ---
 
+## Little Dove Kids Teepee
 
-## Little Dove Kids Teepee Children Play
+[![little-dove-kids-teepee](<https://images-eu.ssl-images-amazon.com/images/I/41JdFa2bCOL.__AC_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Little-dove-Teepee-Children-Outdoor/dp/B07CQZRRNR/?tag=kidsteepees-21>)
 
-[![null](<https://images-eu.ssl-images-amazon.com/images/I/41JdFa2bCOL.__AC_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Little-dove-Teepee-Children-Outdoor/dp/B07CQZRRNR/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Little-dove-Teepee-Children-Outdoor/dp/B07CQZRRNR/?tag=kidsteepees-21>)
+[![little-dove-kids-teepee](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Little-dove-Teepee-Children-Outdoor/dp/B07CQZRRNR/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this itemlarge space the tent playing three children can hold 145 cm high 110 cm long and 110 cm wide 5 pages 10 new zealand pine wood quality poles high the business is of high quality material 100 cotton and it has a matte base stable version belt safety tent with sturdy pine rods and solid new zealand it is also a building of the highest quality which gives her peace a private meaning wonderful childhood you can spend your time in the store you can play with your children so close to you you and your children this would be the best memory for their children
+- **HIGH QUALITY** Made from 100% cotton, it is easy to clean with a damp cloth, strong and attractive, with coloured balls and lace.
+
+- **COMFORTABLE** Children can get cosy in the teepee and can read books, play games & sleep.
 
 ### Our Rating For This Product
 
 4.5 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 110 x 110 x 145 cm; 3 Kilograms |
+|------------------------------|---------------------------------|
+| Manufacturer recommended age | 3 years and up                  |
+| Manufacturer reference       | AB-122                          |
+| Educational Objective(s)     | Spatial Awareness               |
+| Assembly Required            | No                              |
+| Batteries Required?          | No                              |
+| Batteries Included?          | No                              |
+| Material Type(s)             | Wood, Fabric                    |
+| Remote Control Included?     | No                              |
+| Color                        | White                           |
+| Mfg Recommended age          | 3 year and up                   |
+| ASIN                         | B07CQZRRNR                      |
 
 ### Customers Say about this product
 
->  
-
-
+>  "I absolutely love it. Instructions were very easy to follow. The overall quality feels amazing. Playmate is padded and soft. My little girl loves her teepee tent. She loves to play peek-a-boo. I love white colour. It's beautiful."
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
+| 👉 Machine Washable |👉 No pillow  |
+| 👉 Beautiful Design |👉 Customers have reported missing parts  |
+| 👉 Great Value for Money |👉 No carry case, so harder to transport  |
 
 
 
