@@ -299,8 +299,8 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ### Customers Say about this product
 
->  Good quality 👌 My daughter loves it!
-Very spacious easy to assembly! Looks exactly like in pictures .Definitely recommend 👍
+>  "Good quality 👌 My daughter absolutely loves it!
+Very spacious easy to assembly! Definitely recommend" 👍
 
 
 
@@ -312,15 +312,13 @@ Very spacious easy to assembly! Looks exactly like in pictures .Definitely recom
 | 👉 Two windows |👉 Wood support make this heavier  |
 | 👉 Spacious |👉 Doesn't come with lights as in the photo  |
 
-
 ---
-
 
 ## Asweets Teepee Tent  Kids Canvas
 
-[![null](<https://cache.ndnb.live/71e5530057c372faab9ecea910ecd65c7b8ae545/74528d90-578b-11eb-b7e1-c11fc86672f3.jpeg>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
+[![asweets-teepee-tent-kids-canvas](<https://cache.ndnb.live/71e5530057c372faab9ecea910ecd65c7b8ae545/74528d90-578b-11eb-b7e1-c11fc86672f3.jpeg>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
+[![asweets-teepee-tent-kids-canvas](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
 
 ### Product Description
 
