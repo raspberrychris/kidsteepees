@@ -277,7 +277,9 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 
 - **GREAT DESIGN** Stars & window style and curtains make children think of the starry sky, everyone is a planet, encourage children to be more independent and learn to respect others. This teepee tent is also very suitable for taking pictures, leaving traces of kids’ growth.
+
 - **CONVENIENT & COMFORTABLE** This kids playhouse is easy to assemble and compact for storage, made to be portable and practical, so that you can carry this teepee anywhere you like, such as home, kindergarten, backyard, parks and so on. And this kids play tent is also coming with a plush mat, children can sit or lie on it comfortably to read and play.
+
 - **HIGH QUALITY** Our Child Indian tent is made of 100% natural and non-toxic cotton canvas, durable and detachable, machine washable or hand washable. The tent poles are made of sturdy pine wood and are free of chemical odors and harmful substances. Size（L x W x H）: 47 x 47 x 59 inches.
 
 ### Our Rating For This Product
