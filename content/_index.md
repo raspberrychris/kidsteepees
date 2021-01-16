@@ -7,15 +7,15 @@ weight: 1
 canonicalUrl: “/
 ---
 
-Welcome to ![kidsteepees.co.uk](kidsteepees.co.uk) the number one place to find your little one a children's teepee!  We have the cutest selection of teepees available.
+Welcome to [kidsteepees.co.uk](https://kidsteepees.co.uk) the number one place to find your little one a children's teepee!  We have the cutest selection of teepees available.
 
 Browse the very **best Kids Teepees** from all around the internet in one single page.  Check out our blog for the latest updates.  
 
 ## Canicove Teepee Tent Kids - (OUR #1 Pick!)
 
-[![null](<https://cache.ndnb.live/6e998a756bfdf123323444f77e401f6cd4ee1663/19ec0160-578b-11eb-8f43-6dbe63856760.jpeg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
+[![carnicove-teepee-tent-kids](<https://cache.ndnb.live/6e998a756bfdf123323444f77e401f6cd4ee1663/19ec0160-578b-11eb-8f43-6dbe63856760.jpeg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
+[![carnicove-teepee-tent-kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 ### Product Description
 
@@ -61,7 +61,7 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 | ✅  Pros | ❌ Cons |
 |-|-|
 | 👉 Fits 2 children, quite roomy! |👉 Indoors only really.  |
-| 👉 Perfect for tall children |👉 Safety tested for piece of mind  |
+| 👉 Perfect for tall children |👉 Not suitable for children under 3  |
 | 👉 Can be used outdoors on sunny days |👉 Not waterproof or weather proof  |
 
 
