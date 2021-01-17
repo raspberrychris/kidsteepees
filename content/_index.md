@@ -943,41 +943,51 @@ invite door can be where you need placed simply attach to create the door curtai
 
 ## Fbsport Kids Indian Teepee Play Tent
 
-[![null](<https://cache.ndnb.live/500663eec72ccac0b4304bc7d15792eefc6d0191/41423220-578b-11eb-beac-3f2cae62c5f6.jpeg>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
+[![fbsport-kids-indian-teepee-play-tent](<https://cache.ndnb.live/500663eec72ccac0b4304bc7d15792eefc6d0191/41423220-578b-11eb-beac-3f2cae62c5f6.jpeg>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
+[![fbsport-kids-indian-teepee-play-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
 
 ### Product Description
 
-on this subject tipi ideal for children beach children love to use their tipi ideal for kids room game room living room sleepovers baby showers birthdays and parties to read sleep play with friends to keep toys and games or just have some time alone funning best gift and play every child is his children love the tent saves the game is a magical adventure for indoor and outdoor activities for children let your kids make their tepees their imagination develop his little house in the decoration impressive features large mesh windows provide sufficient ventilation pecked mental provided and the accumulation of sand in the pockets stabilization great beach tent easy for baby from top to bottom this folding sunshade beach pop up can be very easy to install and in a minute remove cover only store games with the best quality for their children light 190t polyester pvc and durable construction
+- **BREATHABLE** Mesh Windows for Air Flow
+- **EASY FOR KIDS** Tie-Up Front Door Flap
+- **EASY ASSEMBLY**Easy to Assemble, Easy to Clean
+- **MULTIPLE USE** Indoor/Outdoor Safe
+- **SUITS YOUNG CHILDREN** Ages: 1-8
+- **GOOD SIZE** Size: 46” x 46” x 59”
 
 ### Our Rating For This Product
 
 4.4 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions       | 45.8 x 14 x 10.2 cm; 1 Kilograms |
+|--------------------------|----------------------------------|
+| Manufacturer reference   | dkf                              |
+| Assembly Required        | No                               |
+| Batteries Required?      | No                               |
+| Batteries Included?      | No                               |
+| Material Type(s)         | Polyester                        |
+| Remote Control Included? | No                               |
+| Color                    | Galaxy                           |
+| ASIN                     | B07GLNV6QB                       |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Great size, high teepee which means no ducking into tent. Suitable for 0 - 8 i would say. Easy to assemble, pole are tight so had to re sew alittle tear from the poles stretching. Happy with purchase.""
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Absolutely huge!  |👉 Customers have reported dye coming off on their hands  |
+| 👉 Great Quality |👉 Quality could be better  |
+| 👉 Comfortable |👉 Customers have reported tears on some products  |
 
 ---
-
 
 ## Toysland Indoor Indian Playhouse Teepee Tent
 
