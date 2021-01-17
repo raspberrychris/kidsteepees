@@ -847,81 +847,99 @@ invite door can be where you need placed simply attach to create the door curtai
 ---
 
 
-## 'Tipi Teepee Elfique Double Padded Cover
+## Tipi Teepee Elfique Double Padded Cover
 
-[![null](<https://cache.ndnb.live/8a62beba7c5962e8bfd2d2bcc3dd47807e7a82da/88ea01c0-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
+[![tipi-teepee-elfique-double-padded-cover](<https://cache.ndnb.live/8a62beba7c5962e8bfd2d2bcc3dd47807e7a82da/88ea01c0-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
+[![tipi-teepee-elfique-double-padded-cover](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this is item you buy to increase base 140 cm 110 cm x 110 cm 3 cm of four lanes of the tent canopy of pine l height 180 cmbase tent 105 cm x 105 cm cm 3 3 cushions in three different models star square
+- **GREAT DESIGN** The fabric's choice is characterised by simple elegance and tasteful, Zeitgemäβe composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted. We place great emphasis on creating.
+
+- **COMES WITH ACCESSORIES** Elfique Tipi Teepee tent comes with a double padded duvet and 3 cushions.
+
+- **COSY AND COMFORTABLE** The base cloth is about 6 cm thick and super comfortable and super cosy.
 
 ### Our Rating For This Product
 
 4.4 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
+
+| Product Dimensions           | 110.01 x 110.01 x 140 cm; 4.22 Kilograms |
+|------------------------------|------------------------------------------|
+| Manufacturer recommended age | 3 years and up                           |
+| Assembly Required            | No                                       |
+| Batteries Required?          | No                                       |
+| Batteries Included?          | No                                       |
+| Material Type(s)             | Cotton                                   |
+| Remote Control Included?     | No                                       |
+| Mfg Recommended age          | 3 year and up                            |
+| ASIN                         | B0798SMM9F                               |
 
 
 ### Customers Say about this product
 
->  
-
-
+>  "Beautiful tent, excellent materials!!!"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Great Design |👉 Customers have reported having problems putting the tent together  |
+| 👉 Comes with nice accessories |👉 Unstable  |
+| 👉 Good quality materials |👉 Customers have reported issues with the sewing  |
 
 ---
 
+## Funwithmum Teepee Tent Children's Tipi
 
-## Funwithmum Teepee Tent  Children Tipi
+[![funwithmum-teepee-tent-childrens-tipi](<https://cache.ndnb.live/6233d7bb5f7f6a6f4581b210f7a4c2a70e0fe858/2546a6f0-578b-11eb-b7e1-c11fc86672f3.jpeg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
 
-[![null](<https://cache.ndnb.live/6233d7bb5f7f6a6f4581b210f7a4c2a70e0fe858/2546a6f0-578b-11eb-b7e1-c11fc86672f3.jpeg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
+[![funwithmum-teepee-tent-childrens-tipi](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
 
 ### Product Description
 
-it will be great for every season a tent itemtepee cache of your child it will be perfect for home patio balcony or garden he will do everything in beautify and comfortable it can contain only children but also parents happy to be a bedtime story the small tent is easy to read and easy to fold so you wear free and can move it consists of two pieces of fabric colors it has joined a nice windows and shutters inside there are two bags used for small treasures materials high quality cotton wood pools floor mats compliance polyester nonwovens dimensions cm 150 unfolded size foot width 100 100 cm square package includes 1x tepee floor mats 1x 3x pillows 4x wooden pool 1x instruction
+- **OUTSIDE AND INSIDE*** It will be perfect for your apartment, patio, balcony or garden. It will embellish any interior and make it cozy. It can hold not only the child, but also the parent, happy to read the little one a bedtime story.
+
+- **LIGHTWEIGHT AND EASILY FOLDABLE** The tent is light and easily foldable, so it can be freely transported and moved.
+
+- **BRIGHT COLOURFUL DESIGN** It is made of two colorful pieces of fabric. It has a cute window and laced flaps. Inside, there are 2 pockets for your little one's treasures.
+
 
 ### Our Rating For This Product
 
-
-
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 100 x 100 x 180 cm; 4 Kilograms |
+|------------------------------|---------------------------------|
+| Manufacturer recommended age | 12 months and up                |
+| Assembly Required            | No                              |
+| Batteries Required?          | No                              |
+| Batteries Included?          | No                              |
+| Material Type(s)             | Polyester, Cotton               |
+| Remote Control Included?     | No                              |
+| Mfg Recommended age          | 12 months and up                |
+| ASIN                         | B01MU7RTMH                      |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Our son loves to play in the tent, it was a good investment. Can be used for years. He has his privacy in it and reads his book. We bought it for the first birthday."
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Long life and durable |👉 Pricy!  |
+| 👉 Good Quality Tipi and cushions |👉 Not many customer reviews  |
+| 👉 Colourful Design |👉 Cheaper alternatives may have better design  |
 
 ---
-
 
 ## Fbsport Kids Indian Teepee Play Tent
 
