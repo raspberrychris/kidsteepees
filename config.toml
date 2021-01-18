@@ -1,3 +1,10 @@
 baseURL = "/"
 languageCode = "en-us"
 title = "Kids Teepees"
+
+[Params.social.share]
+  facebook = true
+  linkedin = true
+  twitter = true
+  whatsapp = true
+  email = true
