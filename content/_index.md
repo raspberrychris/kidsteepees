@@ -819,9 +819,9 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ### Product Description
 
-Tent Dimension in inch: 55" (Diameter) x 53" (H). Specially designed hexagon, provide a perfectly sized space, giving your children plenty of room to stand and play, even an adult can fit inside. Playing dress-up, have fun with friends, or read, etc, your kids will love this play tent definitely!
-Made with durable and log lasting polyester blend fabric, lightweight and portable. There are all together 19 connectors, PLEASE CONTACT US if you find any missing parts.
-Comes with a carrying bag, making it easy to store when it's time to put the tent away. Be excellent for indoor or outdoor play! Please note that the dolls and pillows shown are not included in the package.
+- **HEXAGON** Tent Dimensions in inches is: 55" (Diameter) x 53" (H). Specially designed hexagon shape, provides a perfectly sized space, giving your children plenty of room to stand and play, even an adult can fit inside!
+
+- **DURABLE** Made with durable and log lasting polyester blend fabric, lightweight and portable. Comes with a carrying bag, making it easy to store when it's time to put the tent away. Excellent for indoor or outdoor play.
 
 ### Our Rating For This Product
 
