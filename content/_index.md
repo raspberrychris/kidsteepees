@@ -10,7 +10,7 @@ canonicalUrl: “/
 Welcome to [kidsteepees.co.uk](https://kidsteepees.co.uk) the number one place to find your little one a **children's teepee**! Kidsteepees.co.uk is an independent expert buying guide to finding the best children's teepees.  We have reviewed some of the top teepees for your little ones.  
 
 ## Considering buying a Teepee?  Read our buying guide to choose the perfect Teepee for your little one.
-
+![princess-teepee-girl](<https://cdn.pixabay.com/photo/2020/04/17/07/33/princess-5053620_960_720.jpg>)
 **Teepees** make an excellent gift to give to younger children and their unique design gives them their own space where they can use their imagination to role-play different scenarios with friends or their loved ones.  Imaginative play gives an opportunity for kids to develop language and social skills by talking with other children or adults and problem solving.
 
 ## Teepees make brilliant traditional presents
