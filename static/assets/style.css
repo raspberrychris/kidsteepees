@@ -27,7 +27,7 @@ body {
 }
 #side {
   grid-area: side;
-  width: 430px;
+  width: 380px;
 }
 #footer {
   grid-area: footer;
