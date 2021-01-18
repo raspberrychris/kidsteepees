@@ -416,7 +416,6 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ### Product Description
 
-
 - **CONSIDERATE DESIGN** This Princess teepee Tent has 3 windows which allows light for your children and also allows you to keep an eye on them!
 
 - **LARGE SIZE** Our princess tent size is 51”x39”x51 and can accommodate up to 3 kids at the same time, it is enough to let kids have their own private place for entertaining, eading,playing games and relaxing themselves in this playhouse.
@@ -455,9 +454,9 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ## Triclicks Kids Teepee Play Tent
 
-[![null](<https://cache.ndnb.live/d4a18a5865c89a14291ad0355d81bc369d054428/3f552f30-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
+[![tricklicks-kids-teepee-play-tent](<https://cache.ndnb.live/d4a18a5865c89a14291ad0355d81bc369d054428/3f552f30-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
+[![tricklicks-kids-teepee-play-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
 
 ### Product Description
 
@@ -729,9 +728,9 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ## Aniikiss 6' Giant Canvas Kids Play
 
-[![null](<https://cache.ndnb.live/5321f27a74c6b6b32779f59d143e6c4c9fcca7b2/aa8844e0-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
+[![aniikiss-6-giant-canvas-kids-play](<https://cache.ndnb.live/5321f27a74c6b6b32779f59d143e6c4c9fcca7b2/aa8844e0-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
+[![aniikiss-6-giant-canvas-kids-play](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
 
 ### Product Description
 
@@ -779,6 +778,9 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ### Product Description
 
+- **Skin-friendly Canvas** This Kids Teepee Tent is made of 100% Eco and Skin-friendly Canvas Material, which makes it more breathable, and will do no harm to your children's skin.  Creating a perfect healthy play or rest environment for your kids.
+
+- **Side Window Design** Safer and Cosier.  Adopted side window and mesh top design, this Tipi Toddler Play Tent can make the inside of the tent more ventilated, cozier, comfortable and more breathable, giving your kids a better light inside and a better view of outside; meanwhile also enable you to watch kids inside to keep them safe
 
 ### Our Rating For This Product
 
@@ -788,25 +790,26 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ### Technical Details
 
+| Product Dimensions  | 150 x 120 x 120 cm; 3 Kilograms |
+|---------------------|---------------------------------|
+| Batteries Required? | No                              |
+| Material Type(s)    | Wood, Canvas                    |
+| Color               | B-pink Lace Type                |
+| ASIN                | B082SV88MY                      |
 
 ### Customers Say about this product
 
->  
-
-
+>  "I bought the teepee for my two year old grandson. It looks really good and he is very pleased with it. However there is a mark on the material at the front of the tent and the mattress is not waterproof it is just the same material as the tent. Apart from this I would recommend the tent as it is very sturdy and has plenty of room inside."
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Visually pleasing with nice colours |👉 Mat is more of a square piece of cloth  |
+| 👉 Big enough for a 8 year old |👉 Some customers have reported stability issues  |
+| 👉 Cloth Mat is not waterproof |👉 Some customers have had problems putting this teepee together  |
 
 ---
-
 
 ## Pericross Kids Castle Tee-Pee Tent Princess
 
