@@ -1103,24 +1103,40 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ---
 
-## Relaxdays Teepee Play Tent Children’S Playhouse
+## Relaxdays Teepee Play Tent Children’s Playhouse
 
-[![null](<https://images-eu.ssl-images-amazon.com/images/I/71KJkhElrlL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Relaxdays-Teepee-Childrens-Playhouse-Outdoor/dp/B07B8VPM15/?tag=kidsteepees-21>)
+[![relaxdays-teepee-play-tent-childrens-playhouse](<https://images-eu.ssl-images-amazon.com/images/I/71KJkhElrlL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Relaxdays-Teepee-Childrens-Playhouse-Outdoor/dp/B07B8VPM15/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Relaxdays-Teepee-Childrens-Playhouse-Outdoor/dp/B07B8VPM15/?tag=kidsteepees-21>)
+[![relaxdays-teepee-play-tent-childrens-playhouse](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Relaxdays-Teepee-Childrens-Playhouse-Outdoor/dp/B07B8VPM15/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this little itemfor indians children decorative teepees gray with blue ground wood pulp poland h x w x d approx 155 x 125 x 125 cmneutral this game is great fun for boys and girls with an integrated factory and rear window suitable for children over 3 years in a relay pour the tipi pop is perfect for the nursery or playroom can also permanently stay bent delight your outside kidsfor this memory simulation game is 100 polyester and also suitable for outdoor use for the garden or in the campsite offering shade when summer easy monday just a few more minutes it takes valuable piece esta created to get easily for easy transport h x w x d 130 x 115 x 115 cm
+- **NEUTRAL DESIGN SUITABLE FOR 3+** This play tent is so much fun for girls and boys alike with an integrated floor and window on the backside - Suitable for children ages 3 and up
+
+- **FOR INDOORS** This pop-up teepee is just perfect for the nursery or games room - Can also remain folded out permanently to delight your kids
+
+- **FOR OUTDOORS** This pretend play tent is made of 100 % polyester and thus also suited for outdoor use - For garden or campsite - Offers shade during the summer
 
 ### Our Rating For This Product
 
 4.3 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 90 x 10 x 10 cm; 2 Kilograms |
+|------------------------------|------------------------------|
+| Manufacturer recommended age | 36 months - 10 years         |
+| Item model number            | 10022461                     |
+| Language:                    | English                      |
+| Number of Puzzle Pieces      | 1                            |
+| Assembly Required            | No                           |
+| Batteries Required?          | No                           |
+| Material Type(s)             | Polyester, Wood              |
+| Remote Control Included?     | No                           |
+| Mfg Recommended age          | 36 months - 10 years         |
+| ASIN                         | B07B8VPM15                   |
 
 ### Customers Say about this product
 
@@ -1132,130 +1148,152 @@ this little itemfor indians children decorative teepees gray with blue ground wo
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Quality is great |👉 Price is on the high side  |
+| 👉 Beautiful design |👉 Some customers have reported ripped seams  |
+| 👉 Spacious |👉 Front entrance has been criticised for being too small by some customers  |
 
 ---
 
+## Home-Ever Wigwam Teepee Play Tent
 
-## Home-Ever Wigwam Teepee Play Tent --
+[![home-ever-wigwam-teepee-play-tent](<https://cache.ndnb.live/05e612d0d5d2351dc9de4e1720e90e73cd42ac7a/afc02d10-578b-11eb-af6d-c150f70df58e.jpeg>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
 
-[![null](<https://cache.ndnb.live/05e612d0d5d2351dc9de4e1720e90e73cd42ac7a/afc02d10-578b-11eb-af6d-c150f70df58e.jpeg>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
+[![home-ever-wigwam-teepee-play-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
 
 ### Product Description
 
-beautiful fabric groundsheet wooden with wigwam polish material 140 cm and 120 cm wide to set about the size 150 cm base simple construction and easy away indoors outdoor ideal gift for children
+- **HIGH QUALITY CANVAS** Wigwam- Beautiful Canvas Material with groundsheet
+
+- **STRONG WOODEN POLES** Wooden Poles, approx size 140cm tall & 120cm width (150cm across base)
+
+- **EASY TO CONSTRUCT** Simple to construct and easy to put away
 
 ### Our Rating For This Product
 
 4.6 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions           | 97.2 x 19.6 x 10.4 cm; 3.98 Kilograms |
+|------------------------------|---------------------------------------|
+| Manufacturer recommended age | 3 years and up                        |
+| Assembly Required            | No                                    |
+| Batteries Required?          | No                                    |
+| Batteries Included?          | No                                    |
+| Remote Control Included?     | No                                    |
+| Mfg Recommended age          | 3 year and up                         |
+| ASIN                         | B07F38W6L8                            |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Daughter loves it to play in and to climb. Loved the design and sizing."
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Quick to assemble |👉 Some customers have complained about the quality  |
+| 👉 Good looking teepee |👉 Some customers have reported it being unsteady  |
+| 👉 No smell  |👉 Materials good be better  |
 
 ---
 
-
 ## Childrens Wigwam Play Tent / Teepee
 
-[![null](<https://cache.ndnb.live/8abee6e8c0c08c0f0215010c24cdfdcc2fa77442/909756c0-578b-11eb-beac-3f2cae62c5f6.jpeg>)](<https://www.amazon.co.uk/Childrens-Wigwam-Teepee-Design-Playhouse/dp/B010B74ZP2/?tag=kidsteepees-21>)
+[![childrens-wigwam-play-tent-teepee](<https://cache.ndnb.live/8abee6e8c0c08c0f0215010c24cdfdcc2fa77442/909756c0-578b-11eb-beac-3f2cae62c5f6.jpeg>)](<https://www.amazon.co.uk/Childrens-Wigwam-Teepee-Design-Playhouse/dp/B010B74ZP2/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Childrens-Wigwam-Teepee-Design-Playhouse/dp/B010B74ZP2/?tag=kidsteepees-21>)
+[![childrens-wigwam-play-tent-teepee](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Childrens-Wigwam-Teepee-Design-Playhouse/dp/B010B74ZP2/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this itemevery loves boy pretending to be an indian and what better esta wigwamentrance wonderful step in a curtainmaterial strong polyester dimensions 100 x 100 x 135 cm
+- **GOOD VALUE**  This teepee is a quirky shape and has a native american influenced design on the outside.
+- **STRONG MATERIALS** Made from strong polyester this is going to be a hard wearing teepee.
 
 ### Our Rating For This Product
 
 4.4 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Package Dimensions           | 34.6 x 33.4 x 5.8 cm; 799.99 Grams |
+|------------------------------|------------------------------------|
+| Manufacturer recommended age | 36 months - 6 years                |
+| Manufacturer reference       | 3546268                            |
+| Assembly Required            | No                                 |
+| Batteries Required?          | No                                 |
+| Batteries Included?          | No                                 |
+| Material Type(s)             | Polyester                          |
+| Remote Control Included?     | No                                 |
+| Mfg Recommended age          | 36 months - 6 years                |
+| ASIN                         | B010B74ZP2                         |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Got this for my newborn so he can be outside but still in the shade and safe"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Good for indoors and outdoors  |👉 Bit smaller than most of the other options on here  |
+| 👉 Good value for money |👉 Not that easy to set up, and not a 'pop up'  |
+| 👉 Authentic style |👉 Folding up also requires time to get right!  |
 
 ---
 
+## Elfique Tipi Teepee Double Padded Cover
 
-## Elfique 'Tipi Teepee Double Padded Cover
+[![elfique-tipi-teepee-double-padded-cover](<https://cache.ndnb.live/7edd6dac6f613e0feb6e8b26c85ae5122dd3ce00/3f0adfc0-578b-11eb-b9ff-2da72ee34bdc.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
 
-[![null](<https://cache.ndnb.live/7edd6dac6f613e0feb6e8b26c85ae5122dd3ce00/3f0adfc0-578b-11eb-b9ff-2da72ee34bdc.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
+[![elfique-tipi-teepee-double-padded-cover](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this is item you buy to increase base 140 cm 110 cm x 110 cm 3 cm of four lanes of the tent canopy of pine l height 180 cmbase tent 105 cm x 105 cm cm 3 3 cushions in three different models star square
+- **INNOVATIVE** Our Baumwollenes tent offers an innovative alternative for tents made of plastic, because it is breathable. It can be used in
+Summer Outdoor Decoration for the garden, balcony or patio. Also you will find in the tent has plenty of room for when you want your new born Indian stories or princess fairy tales reading.
+
+- **POCKETS INSIDE** Pockets inside the tent allow your children to have easy storage.
+
+- **ELEGANT FABRIC** The fabric's choice is characterised by simple elegance and tasteful.  The composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted.
 
 ### Our Rating For This Product
 
 4.6 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 110.01 x 110.01 x 140 cm; 4.36 Kilograms |
+|------------------------------|------------------------------------------|
+| Manufacturer recommended age | 3 years and up                           |
+| Assembly Required            | No                                       |
+| Batteries Required?          | No                                       |
+| Batteries Included?          | No                                       |
+| Material Type(s)             | Cotton                                   |
+| Remote Control Included?     | No                                       |
+| Mfg Recommended age          | 3 year and up                            |
+| ASIN                         | B0798QX3ZQ                               |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Excellent high quality product"
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Excellent Quality  |👉 More on the expensive side!  |
+| 👉 Beautiful, thoughtful design |👉 Not much  |
+| 👉 Easy to dissemble |👉 Not much  |
 
 ---
 
-
-## Elfique 'Tipi Teepee Double Padded Cover
+## Elfique Tipi Teepee Double Padded Cover
 
 [![null](<https://cache.ndnb.live/b185def545c8b32f9bb45e2eb49e8454d8694a70/675338b0-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
 
