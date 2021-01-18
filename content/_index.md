@@ -773,19 +773,18 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ## Kids Teepee Children Game Playhouse Tent
 
-[![null](<https://cache.ndnb.live/c24328382f1c31062bcd9993d14041a47385554c/be952c50-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
+[![kids-teepee-children-game-playhouse-tent](<https://cache.ndnb.live/c24328382f1c31062bcd9993d14041a47385554c/be952c50-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
+[![kids-teepee-children-game-playhouse-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this friendly canvas and leather thick pine this shop be the tent of indian children from 100 organic skin and the environment canvas material made breathable not hurt your skin with kids wooden thick pine secure grip permanent making a big room create a perfect game in good health and the environment for your children sleep safe design side window and side window cozier accepted and top design mesh this tipi young children with more in store play more comfortable ventilation air permeable and comfortable to give their children a better interior lighting and a better view of the outside but you can also wait inside on children see to keep them safe indian wigwam simple and clean device is not difficult this theater following the instructions for setting up and all those shown in the picture accessories it usually takes 3 to 5 minutes to finish the setting easy to assemble and disassemble for easy cleaning and perfect gift for your girl girl tepee this can be a great gift for your girl be peak design and seams cute pink ball beautification her baby princess dream with the great 120 height 120 cm 150 children feel free to their room for private games and game fills princess satisfaction guarantee to enjoy envoy of the united kingdom you can get the package that addresses the united kingdom within 3 business days our products are all new and they respond to your needs if you have problems with them you can feel free to contact us and we will be happy at any time in order note that there is a slight difference due to the color light
 
 ### Our Rating For This Product
 
 4.4 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
@@ -833,7 +832,6 @@ invite door can be where you need placed simply attach to create the door curtai
 >  
 
 
-
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
@@ -845,7 +843,6 @@ invite door can be where you need placed simply attach to create the door curtai
 
 
 ---
-
 
 ## Tipi Teepee Elfique Double Padded Cover
 
