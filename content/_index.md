@@ -19,6 +19,8 @@ In a world full of electronic devices that adults are engrossed in it is importa
 
 ## We only review the best teepees!
 
+![award-winning-teepees-best](<https://cdn.pixabay.com/photo/2018/01/01/16/46/label-3054511_960_720.png>)
+
 We only choose the best hideaways that your kids will absolutely **LOVE!** We have the cutest selection of teepees available on the entire web.
 
 Browse the very **best Kids Teepees** from all around the internet in one single page.  Check out our blog for the latest updates.  
