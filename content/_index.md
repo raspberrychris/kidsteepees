@@ -813,37 +813,47 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ## Pericross Kids Castle Tee-Pee Tent Princess
 
-[![null](<https://images-eu.ssl-images-amazon.com/images/I/61-Jm4%2BJdeL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Princess-Castle-Hexagon-Playhouse-Indoor/dp/B01E9VN61K/?tag=kidsteepees-21>)
+[![pericross-kids-castle-teepee-tent-princess](<https://images-eu.ssl-images-amazon.com/images/I/61-Jm4%2BJdeL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Princess-Castle-Hexagon-Playhouse-Indoor/dp/B01E9VN61K/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Princess-Castle-Hexagon-Playhouse-Indoor/dp/B01E9VN61K/?tag=kidsteepees-21>)
+[![pericross-kids-castle-teepee-tent-princess](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Princess-Castle-Hexagon-Playhouse-Indoor/dp/B01E9VN61K/?tag=kidsteepees-21>)
 
 ### Product Description
 
-invite door can be where you need placed simply attach to create the door curtain children can easily be slid into and out of easily fairly to install with the support posts and a node at the ends of the spring within the thumb poles tent size 55 diameter x 53 h specially designed hexagon can fit inside a perfect size room enter to stay your children plenty of space and play also offers an adult play dress up have fun with friends or read etc your kids will love this store definitely play sustainable and durable made of polyester blended fabric light and portable there are a total of 19 ports please contact us if you find parts comes a bag is missing making it easy to be away when the time to the tent to put away excellent for indoor play area or outdoors note that the dolls and pillows are not included in package easy be cleaned with a damp cloth and mild soap recommend washing by hand
+Tent Dimension in inch: 55" (Diameter) x 53" (H). Specially designed hexagon, provide a perfectly sized space, giving your children plenty of room to stand and play, even an adult can fit inside. Playing dress-up, have fun with friends, or read, etc, your kids will love this play tent definitely!
+Made with durable and log lasting polyester blend fabric, lightweight and portable. There are all together 19 connectors, PLEASE CONTACT US if you find any missing parts.
+Comes with a carrying bag, making it easy to store when it's time to put the tent away. Be excellent for indoor or outdoor play! Please note that the dolls and pillows shown are not included in the package.
 
 ### Our Rating For This Product
 
 4.4 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 140 x 70 x 130 cm; 1.48 Kilograms |
+|------------------------------|-----------------------------------|
+| Manufacturer recommended age | 36 months - 12 years              |
+| Assembly Required            | No                                |
+| Batteries Required?          | No                                |
+| Batteries Included?          | No                                |
+| Remote Control Included?     | No                                |
+| Color                        | Pink Tent                         |
+| Mfg Recommended age          | 36 months - 12 years              |
+| ASIN                         | B01E9VN61K                        |
 
 ### Customers Say about this product
 
->  
-
+>  "A dream for any little princess, especially if you actually hang a starry light chain.
+Nice and airy through the curtains; otherwise I'll find the air jams up quickly with more than one child in the play tent. Despite the lack of instructions, easy to set up. So four stars for this!""
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Good Customer service with regard to assembly |👉 Customers have reported poorly printed instructions  |
+| 👉 Beautiful Tent |👉 Customers have reported having difficulty with the poles staying together  |
+| 👉 H-U-G-E! |👉 One customer has reported that there was a piece missing in their delivery.  |
 
 ---
 
