@@ -6,6 +6,7 @@ menu:
 weight: 1
 canonicalUrl: “/
 ---
+<iframe src="https://rcm-eu.amazon-adsystem.com/e/cm?o=2&p=12&l=ur1&category=amazon_kids&banner=16WDKKJSTTZ6KQGJWZ82&f=ifr&linkID=aed2025a66ea9c82ece5e28eede922f8&t=kidsteepees-21&tracking_id=kidsteepees-21" width="300" height="250" scrolling="no" border="0" marginwidth="0" style="border:none;" frameborder="0"></iframe>
 
 Welcome to [kidsteepees.co.uk](https://kidsteepees.co.uk) the number one place to find your little one a **children's teepee**! Kidsteepees.co.uk is an independent expert buying guide to finding the best children's teepees.  We have reviewed some of the top teepees for your little ones.  
 
