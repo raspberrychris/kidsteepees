@@ -1395,12 +1395,15 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 ### Product Description
 
+- **DURABLE & SAFE** LUVODI kids teepee is made with 100% natural non-toxic wood and linen fabric, which is very sturdy and durable for a long period use.
+
+- **COSY** This play tent can give your kids a cozy place to lounge, sleep, enjoy role playing, relax themselves, play with friends for hours of fun.
+
+- **FOLDABLE AND PORTABLE** The play tent comes with a user manual for easy assembling and close up, four wood poles are fixed together with a push in connecting piece.
 
 ### Our Rating For This Product
 
-
-
-⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
@@ -1423,8 +1426,8 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
+| 👉 Customer service has generally been described in favourable terms |👉 Some customers have reported the pole snapping after a couple of days  |
+| 👉 Cheap price |👉 Poor Material  |
+| 👉 Simple design |👉 Wooden poles have been described as not being strong enough by some customers  |
 
 ---
