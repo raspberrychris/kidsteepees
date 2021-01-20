@@ -1336,87 +1336,25 @@ The fabric's choice is characterised by simple elegance and tasteful, Zeitgemä�
 
 ---
 
-## Beneyond Kids Tents Unicorn Rainbow Children's Tent
-
-[![beneyond-kids-tents-unicorn-rainbow-childrens-tent](<https://cache.ndnb.live/ecefd480bc67783c5db9e9a53472b63475384db7/b0c40880-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Beneyond-unicorn-childrens-Children-carrying/dp/B089YQS3G8/?tag=kidsteepees-21>)
-
-[![beneyond-kids-tents-unicorn-rainbow-childrens-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Beneyond-unicorn-childrens-Children-carrying/dp/B089YQS3G8/?tag=kidsteepees-21>)
-
-### Product Description
-
-
-### Our Rating For This Product
-
-
-⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
->  
-
-
-
-### Pros and Cons
-
-| ✅  Pros | ❌ Cons |
-|-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
-
----
-
-
-## A Mustard Seed Toys Large Kids
-
-[![null](<https://images-eu.ssl-images-amazon.com/images/I/81%2BALhx7XIL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Mustard-Seed-Toys-Carrying-Chemicals/dp/B075HKTKZC/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Mustard-Seed-Toys-Carrying-Chemicals/dp/B075HKTKZC/?tag=kidsteepees-21>)
-
-### Product Description
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
->  
-
-
-
-### Pros and Cons
-
-| ✅  Pros | ❌ Cons |
-|-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
----
-
 ## Quieting Kids Teepee Play Tent Children
 
-[![null](<https://images-na.ssl-images-amazon.com/images/I/51T39b-0jTL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
+[![quieting-kids-teepee-play-tent-children](<https://images-na.ssl-images-amazon.com/images/I/51T39b-0jTL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
+[![quieting-kids-teepee-play-tent-children](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
 
 ### Product Description
 
+- **100% NATURAL** This teepee tent is made of 100% natural, breathable and unpainted cotton canvas. The tent poles are made of sturdy pine wood and are free of chemical odors and harmful substances.
+
+- **EASY TO SETUP** They can be setup either at home or outside and provide children with a feeling of privacy and personal space, while allowing parents to monitor them for their safety. For children ages 3 and up.
+
+- **GOOD SIZE** This play tent's Side Length-47.2", Top Height-59", Pole Length-70.9", lightweight and easy to set up.
+
+- **EASILY COLLAPSIBLE** Each one of the four long poles can be dismantled into two shorter poles. The tent has a window for good air circulation and the flap door can close with string.
 
 ### Our Rating For This Product
 
-
-
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
@@ -1435,22 +1373,17 @@ The fabric's choice is characterised by simple elegance and tasteful, Zeitgemä�
 
 ### Customers Say about this product
 
->  
-
-
+>  "A very reasonably priced teepee. Easy to assemble and can be moved from outdoor to indoor with no problems."
 
 ### Pros and Cons
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
+| 👉 Reasonably Priced Teepee |👉 Customer Service has been an issue for some customers  |
+| 👉 Quality is good |👉 Some customers have reported this teepee falling over  |
+| 👉 Quick to assemble |👉 Some customers have reported that certain parts of the teepee have not arrived and the item is not as pictured  |
 
 ---
-
 
 ## Luvodi Girls Pink Teepee Tent Children
 
