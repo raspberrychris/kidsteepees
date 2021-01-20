@@ -6,7 +6,6 @@ menu:
 weight: 1
 canonicalUrl: “/
 ---
-<iframe src="https://rcm-eu.amazon-adsystem.com/e/cm?o=2&p=12&l=ur1&category=amazon_kids&banner=16WDKKJSTTZ6KQGJWZ82&f=ifr&linkID=aed2025a66ea9c82ece5e28eede922f8&t=kidsteepees-21&tracking_id=kidsteepees-21" width="300" height="250" scrolling="no" border="0" marginwidth="0" style="border:none;" frameborder="0"></iframe>
 
 Welcome to [kidsteepees.co.uk](https://kidsteepees.co.uk) the number one place to find your little one a **children's teepee**! Kidsteepees.co.uk is an independent expert buying guide to finding the best children's teepees.  We have reviewed some of the top teepees for your little ones.  
 
@@ -28,7 +27,7 @@ Browse the very **best Kids Teepees** from all around the internet in one single
 
 ## Canicove Teepee Tent Kids - (OUR #1 Pick!)
 
-[![carnicove-teepee-tent-kids](<https://cache.ndnb.live/6e998a756bfdf123323444f77e401f6cd4ee1663/19ec0160-578b-11eb-8f43-6dbe63856760.jpeg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
+[![carnicove-teepee-tent-kids](<https://images-na.ssl-images-amazon.com/images/I/712KhtB2k4L._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 [![carnicove-teepee-tent-kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
