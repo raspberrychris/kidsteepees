@@ -179,7 +179,7 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ## Hippococo Teepee Tent  Kids: Large
 
-[![Hippococo-Teepee-Tent-Kids-Large](<https://cache.ndnb.live/14e0c220b7b7975fb36b926e6ae82b062de1ceef/dc4e6d10-578b-11eb-a8b5-f53ffbc71769.jpeg>)](<https://www.amazon.co.uk/Hippococo-Foldable-Reinforced-Outdoor-Accessory/dp/B07B8XZ31R/?tag=kidsteepees-21>)
+[![Hippococo-Teepee-Tent-Kids-Large](<https://images-na.ssl-images-amazon.com/images/I/51%2B-6DnNb9L._AC_.jpg>)](<https://www.amazon.co.uk/Hippococo-Foldable-Reinforced-Outdoor-Accessory/dp/B07B8XZ31R/?tag=kidsteepees-21>)
 
 [![Hippococo-Teepee-Tent-Kids-Large](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Hippococo-Foldable-Reinforced-Outdoor-Accessory/dp/B07B8XZ31R/?tag=kidsteepees-21>)
 
@@ -232,7 +232,7 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ## Badabulle Indoor Or Outdoor Tipi
 
-[![badabulle-indoor-or-outdoor-tipi](<https://cache.ndnb.live/2184e2ab0cc7b71268f453bddc67444ce3142349/1eaac1f0-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
+[![badabulle-indoor-or-outdoor-tipi](<hhttps://images-na.ssl-images-amazon.com/images/I/51HUUdOFBrL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
 
 [![badabulle-indoor-or-outdoor-tipi](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
 
@@ -328,7 +328,7 @@ Very spacious easy to assembly! Definitely recommend" 👍
 
 ## Asweets Teepee Tent  Kids Canvas
 
-[![asweets-teepee-tent-kids-canvas](<https://cache.ndnb.live/71e5530057c372faab9ecea910ecd65c7b8ae545/74528d90-578b-11eb-b7e1-c11fc86672f3.jpeg>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
+[![asweets-teepee-tent-kids-canvas](<https://images-na.ssl-images-amazon.com/images/I/61vPnCyZ7KL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
 
 [![asweets-teepee-tent-kids-canvas](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
 
@@ -424,7 +424,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ## Uniquevc Kids Princess Play Tent Indoor
 
-[![uniquevc-kids-princess-play-tent-indoor](<https://cache.ndnb.live/daec0fe87a7c09b2fbf1b1580f45aa34b54e2eb4/54c88470-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
+[![uniquevc-kids-princess-play-tent-indoor](<https://images-na.ssl-images-amazon.com/images/I/812nC%2BYKapL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
 
 [![uniquevc-kids-princess-play-tent-indoor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
 
@@ -468,7 +468,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ## Triclicks Kids Teepee Play Tent
 
-[![tricklicks-kids-teepee-play-tent](<https://cache.ndnb.live/d4a18a5865c89a14291ad0355d81bc369d054428/3f552f30-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
+[![tricklicks-kids-teepee-play-tent](<https://images-na.ssl-images-amazon.com/images/I/61lGuEGkbAL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
 
 [![tricklicks-kids-teepee-play-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
 
@@ -565,7 +565,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ## Moritz & Moritz Teepee Tent
 
-[![moritz-moritz-teepee-tent](<https://cache.ndnb.live/350887e9ddc9f5e77e792546466f04db47af89f1/7ae7bbd0-578b-11eb-8f43-6dbe63856760.jpeg>)](<https://www.amazon.co.uk/Moritz-Teepee-Children%C2%B4s-window-Pattern/dp/B07JBCTQTV/?tag=kidsteepees-21>)
+[![moritz-moritz-teepee-tent](<https://images-na.ssl-images-amazon.com/images/I/711%2BLznSdcL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Moritz-Teepee-Children%C2%B4s-window-Pattern/dp/B07JBCTQTV/?tag=kidsteepees-21>)
 
 [![moritz-moritz-teepee-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Moritz-Teepee-Children%C2%B4s-window-Pattern/dp/B07JBCTQTV/?tag=kidsteepees-21>)
 
@@ -616,7 +616,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ## Peradix Kids Teepee Tent Foldable  - (RECOMMENDED!)
 
-[![peredix-kids-teepee-tent-foldable](<https://cache.ndnb.live/a3c34b32cc3924d758b566f92390c55f505ab0b3/0f8f43d0-578b-11eb-800c-cfe592f4f37a.jpeg>)](<https://www.amazon.co.uk/Peradix-Foldable-Portable-White-Grey-Playhouse/dp/B088ND5LLK/?tag=kidsteepees-21>)
+[![peredix-kids-teepee-tent-foldable](<https://images-na.ssl-images-amazon.com/images/I/61eGKLWpJJL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Peradix-Foldable-Portable-White-Grey-Playhouse/dp/B088ND5LLK/?tag=kidsteepees-21>)
 
 [![peredix-kids-teepee-tent-foldable](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Peradix-Foldable-Portable-White-Grey-Playhouse/dp/B088ND5LLK/?tag=kidsteepees-21>)
 
@@ -702,7 +702,7 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ## Kids Teepee Tent Foldable
 
-[![kids-teepee-tent-foldable](<https://cache.ndnb.live/4ee79ef85aecf97fcf4bbfb898748ae3769ef0d6/201e0100-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
+[![kids-teepee-tent-foldable](<https://images-na.ssl-images-amazon.com/images/I/51-KruEISAL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
 
 [![kids-teepee-tent-foldable](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
 
@@ -742,7 +742,7 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ## Aniikiss 6' Giant Canvas Kids Play
 
-[![aniikiss-6-giant-canvas-kids-play](<https://cache.ndnb.live/5321f27a74c6b6b32779f59d143e6c4c9fcca7b2/aa8844e0-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
+[![aniikiss-6-giant-canvas-kids-play](<https://images-na.ssl-images-amazon.com/images/I/71u8WXIg3eL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
 
 [![aniikiss-6-giant-canvas-kids-play](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
 
@@ -786,7 +786,7 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ## Kids Teepee Children Game Playhouse Tent
 
-[![kids-teepee-children-game-playhouse-tent](<https://cache.ndnb.live/c24328382f1c31062bcd9993d14041a47385554c/be952c50-578b-11eb-a969-2fe6c8028a51.jpeg>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
+[![kids-teepee-children-game-playhouse-tent](<https://images-na.ssl-images-amazon.com/images/I/71iLbcEPvBL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
 
 [![kids-teepee-children-game-playhouse-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
 
@@ -873,7 +873,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ## Tipi Teepee Elfique Double Padded Cover
 
-[![tipi-teepee-elfique-double-padded-cover](<https://cache.ndnb.live/8a62beba7c5962e8bfd2d2bcc3dd47807e7a82da/88ea01c0-578b-11eb-9391-8defd058ccf8.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
+[![tipi-teepee-elfique-double-padded-cover](<https://images-na.ssl-images-amazon.com/images/I/81qyJksERbL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
 
 [![tipi-teepee-elfique-double-padded-cover](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
 
@@ -921,7 +921,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ## Funwithmum Teepee Tent Children's Tipi
 
-[![funwithmum-teepee-tent-childrens-tipi](<https://cache.ndnb.live/6233d7bb5f7f6a6f4581b210f7a4c2a70e0fe858/2546a6f0-578b-11eb-b7e1-c11fc86672f3.jpeg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
+[![funwithmum-teepee-tent-childrens-tipi](<https://images-na.ssl-images-amazon.com/images/I/41ml%2Bu1ReLL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
 
 [![funwithmum-teepee-tent-childrens-tipi](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
 
@@ -967,7 +967,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ## Fbsport Kids Indian Teepee Play Tent
 
-[![fbsport-kids-indian-teepee-play-tent](<https://cache.ndnb.live/500663eec72ccac0b4304bc7d15792eefc6d0191/41423220-578b-11eb-beac-3f2cae62c5f6.jpeg>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
+[![fbsport-kids-indian-teepee-play-tent](<https://images-na.ssl-images-amazon.com/images/I/81WtsT2YISL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
 
 [![fbsport-kids-indian-teepee-play-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
 
@@ -1015,7 +1015,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ## Toysland Indoor Indian Playhouse Teepee Tent
 
-[![toysland-indoor-indian-playhouse-teepee-tent](<https://cache.ndnb.live/ce44c7f02c7e912cb447a8655447d0dc0b3ab574/8361fdc0-578b-11eb-beac-3f2cae62c5f6.jpeg>)](<https://www.amazon.co.uk/Toysland-Indoor-Indian-Playhouse-Toddlers/dp/B076139D1K/?tag=kidsteepees-21>)
+[![toysland-indoor-indian-playhouse-teepee-tent](<https://images-na.ssl-images-amazon.com/images/I/51yQhJMR2JL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Toysland-Indoor-Indian-Playhouse-Toddlers/dp/B076139D1K/?tag=kidsteepees-21>)
 
 [![toysland-indoor-indian-playhouse-teepee-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Toysland-Indoor-Indian-Playhouse-Toddlers/dp/B076139D1K/?tag=kidsteepees-21>)
 
@@ -1045,7 +1045,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ### Customers Say about this product
 
->  "Love it!.. I ordered the off-white, and got exactly what I was looking for. Reading other reviews and some stating it had a bottom and some stating it didn't, I was worried, but I also paid close attention to detail, and noticed the differences are the colors you order. The off-white has the bottom connected, the white does not. The off-white has five sides, the white has four .. I got the off-white, with 5 sides, and the bottom connected and it is exactly what I hoped for."
+>  "Love it!.. I ordered the off-white, and got exactly what I was looking for. Reading other reviews and some stating it had a bottom and some stating it didn't, I was worried, but I also paid close attention to detail, and noticed the differences are the colours you order. The off-white has the bottom connected, the white does not. The off-white has five sides, the white has four .. I got the off-white, with 5 sides, and the bottom connected and it is exactly what I hoped for."
 
 ### Pros and Cons
 
@@ -1059,7 +1059,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ## Funwithmum Teepee Tent Children's Tipi
 
-[![funwithmum-teepee-tent-childrens-tipi](<https://cache.ndnb.live/ea94236974583b82ddd4d4388cac5f408ef8e6a3/10f08180-578b-11eb-abfe-f3c0247a717e.jpeg>)](<https://www.amazon.co.uk/FUNwithMUM-Teepee-Tent-Pink-Cloud/dp/B01JOVMN9G/?tag=kidsteepees-21>)
+[![funwithmum-teepee-tent-childrens-tipi](<https://images-na.ssl-images-amazon.com/images/I/81zcDwFyuXL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/FUNwithMUM-Teepee-Tent-Pink-Cloud/dp/B01JOVMN9G/?tag=kidsteepees-21>)
 
 [![funwithmum-teepee-tent-childrens-tipi](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/FUNwithMUM-Teepee-Tent-Pink-Cloud/dp/B01JOVMN9G/?tag=kidsteepees-21>)
 
@@ -1156,7 +1156,7 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ## Home-Ever Wigwam Teepee Play Tent
 
-[![home-ever-wigwam-teepee-play-tent](<https://cache.ndnb.live/05e612d0d5d2351dc9de4e1720e90e73cd42ac7a/afc02d10-578b-11eb-af6d-c150f70df58e.jpeg>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
+[![home-ever-wigwam-teepee-play-tent](<https://images-na.ssl-images-amazon.com/images/I/716qK3C-SoL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
 
 [![home-ever-wigwam-teepee-play-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
 
@@ -1202,7 +1202,7 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ## Childrens Wigwam Play Tent / Teepee
 
-[![childrens-wigwam-play-tent-teepee](<https://cache.ndnb.live/8abee6e8c0c08c0f0215010c24cdfdcc2fa77442/909756c0-578b-11eb-beac-3f2cae62c5f6.jpeg>)](<https://www.amazon.co.uk/Childrens-Wigwam-Teepee-Design-Playhouse/dp/B010B74ZP2/?tag=kidsteepees-21>)
+[![childrens-wigwam-play-tent-teepee](<https://images-na.ssl-images-amazon.com/images/I/41QozoV5t1L._AC_.jpg>)](<https://www.amazon.co.uk/Childrens-Wigwam-Teepee-Design-Playhouse/dp/B010B74ZP2/?tag=kidsteepees-21>)
 
 [![childrens-wigwam-play-tent-teepee](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Childrens-Wigwam-Teepee-Design-Playhouse/dp/B010B74ZP2/?tag=kidsteepees-21>)
 
@@ -1247,7 +1247,7 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ## Elfique Tipi Teepee Double Padded Cover
 
-[![elfique-tipi-teepee-double-padded-cover](<https://cache.ndnb.live/7edd6dac6f613e0feb6e8b26c85ae5122dd3ce00/3f0adfc0-578b-11eb-b9ff-2da72ee34bdc.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
+[![elfique-tipi-teepee-double-padded-cover](<https://images-na.ssl-images-amazon.com/images/I/81qGSP1Xs3L._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
 
 [![elfique-tipi-teepee-double-padded-cover](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
 
@@ -1295,28 +1295,36 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 ## Elfique Tipi Teepee Double Padded Cover
 
-[![null](<https://cache.ndnb.live/b185def545c8b32f9bb45e2eb49e8454d8694a70/675338b0-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
+[![null](<https://images-na.ssl-images-amazon.com/images/I/813r7UVw9QL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
 
 [![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
 
 ### Product Description
 
-this is item you buy to increase base 140 cm 110 cm x 110 cm 3 cm of four lanes of the tent canopy of pine l height 180 cmbase tent 105 cm x 105 cm cm 3 3 cushions in three different models star square
+The fabric's choice is characterised by simple elegance and tasteful, Zeitgemäβe composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted. We place great emphasis on creating.
 
 ### Our Rating For This Product
 
 4.4 out of 5 stars
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 110.01 x 110.01 x 140 cm; 4.24 Kilograms |
+|------------------------------|------------------------------------------|
+| Manufacturer recommended age | 3 years and up                           |
+| Assembly Required            | No                                       |
+| Batteries Required?          | No                                       |
+| Batteries Included?          | No                                       |
+| Material Type(s)             | Cotton                                   |
+| Remote Control Included?     | No                                       |
+| Mfg Recommended age          | 3 year and up                            |
+| ASIN                         | B079JS8GVJ                               |
 
 ### Customers Say about this product
 
->  
-
-
+>  "Good quality and definitely other level than the average that offers the market, complete with three pillows and basic carpet (always pillow), in my opinion a little dear, a 20% less would be more honest.""
 
 ### Pros and Cons
 
@@ -1326,64 +1334,21 @@ this is item you buy to increase base 140 cm 110 cm x 110 cm 3 cm of four lanes 
 | 👉  |👉   |
 | 👉  |👉   |
 
-
-
 ---
 
+## Beneyond Kids Tents Unicorn Rainbow Children's Tent
 
-## Ginkago Led Fairy Lights  Teepee
+[![beneyond-kids-tents-unicorn-rainbow-childrens-tent](<https://cache.ndnb.live/ecefd480bc67783c5db9e9a53472b63475384db7/b0c40880-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Beneyond-unicorn-childrens-Children-carrying/dp/B089YQS3G8/?tag=kidsteepees-21>)
 
-[![null](<https://cache.ndnb.live/b751e9c793931b24306807289dd65ffad304097b/a4c1ff60-578b-11eb-abfe-f3c0247a717e.jpeg>)](<https://www.amazon.co.uk/Ginkago-Twinkle-Battery-Powered-Decoration/dp/B07HMR8CFZ/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Ginkago-Twinkle-Battery-Powered-Decoration/dp/B07HMR8CFZ/?tag=kidsteepees-21>)
+[![beneyond-kids-tents-unicorn-rainbow-childrens-tent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Beneyond-unicorn-childrens-Children-carrying/dp/B089YQS3G8/?tag=kidsteepees-21>)
 
 ### Product Description
 
-note led taillights no store insurance cild tipi this light is battery operated insurance kids easy installation specially designed tipis children born to light super to installmit cips that you have no chains rely on tents polesdesigned tipi easy kids play tent 4 times led lights game tipis teepees not included
 
 ### Our Rating For This Product
 
 
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
->  
-
-
-
-### Pros and Cons
-
-| ✅  Pros | ❌ Cons |
-|-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
-
----
-
-
-## Beneyond Kids Tents UnicornRainbow Children'S TentChildren
-
-[![null](<https://cache.ndnb.live/ecefd480bc67783c5db9e9a53472b63475384db7/b0c40880-578b-11eb-ae5a-116d1d9321b7.jpeg>)](<https://www.amazon.co.uk/Beneyond-unicorn-childrens-Children-carrying/dp/B089YQS3G8/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Beneyond-unicorn-childrens-Children-carrying/dp/B089YQS3G8/?tag=kidsteepees-21>)
-
-### Product Description
-
- private area the beautiful design unicorn and rainbow immersive world for children the beautiful colors are beautiful and interesting every child wants to have a place that own buying a game that belongs to your baby to his business is a perfect choice in your own secrets toys books etc on it can be considered as one of the navy billiard balls kid develop private space capabilities children children is a sense of respect and also respect you what more inspire imagination and creativity of children while they are a private space of their own open size laden 100x100x135cm lxwxh 39 4x39 4x53 2in lxwxh very safe for children baby toys non toxic high edgesdurable or rough and sure enough antirot give place for fun games or special gift and wonderful this product is a nice house tent fee keep children relax play read and enjoy the peace tent also parents and children partners invite her secret to reach the base interactions increase and promote friendship safety and environmental protection the business use of fire retardant polyester fabric 1 90t functional invisible to increase the security level of the store and is one of the materials eco friendly environment so parents you are more secure foldable and portable easy with fast easy to install and fold design you can open and close quickly there must be a tool that is easy degradation is built in a few minutes with instructions
-
-### Our Rating For This Product
-
-
-
-⭐⭐⭐⭐⭐
+⭐⭐⭐⭐
 
 ### Technical Details
 
@@ -1415,11 +1380,7 @@ note led taillights no store insurance cild tipi this light is battery operated 
 
 ### Product Description
 
-made of high quality materials high quality machine washable tent indians in heavy canvas tent with wooden sticks and plenty of space for adults and children 70 high 48 basic x48 in his creation the use of fire retardant chemicals in our tents for your children s safety guaranteed briefcase satisfaction with the purchase of a tipi tent or teepee of us take with you to the beach or park use transport contained to the beach and set up in a few minutes to take the lower floor of instructions stops around the sand and dirt so that your children easily free play on the outside in the shade doors and windows open and close enough kept shutters and doors and close your hand or with the canvas simple connections for children open themselvesstore toys and books run into the inside pockets keep books and other toys in the bag under the window on the inside of your child loves esta home superior design of the tent hypocrisy protect your ratings ras low tent sleeves are sewn holdi sticks at the bottom and hold the sides of the tent to the ground this means that the struggle not to keep things and the other held as tents
-
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
@@ -1440,58 +1401,16 @@ made of high quality materials high quality machine washable tent indians in hea
 | 👉  |👉   |
 | 👉  |👉   |
 
-
-
 ---
-
-
-## Hi Suyi Kids Children Castle Play
-
-[![null](<https://cache.ndnb.live/3fa841c322059759873dc5e4bd1487c6d63353e1/fafd4de0-578a-11eb-af6d-c150f70df58e.jpeg>)](<https://www.amazon.co.uk/Hi-Suyi-Children-Mongolian-Playhouse/dp/B073WVHM8P/?tag=kidsteepees-21>)
-
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Hi-Suyi-Children-Mongolian-Playhouse/dp/B073WVHM8P/?tag=kidsteepees-21>)
-
-### Product Description
-
-this item material polyester frame wire and fiber rodthe small castle 1 door 2 windows the design is very reasonable and easy to clean dirty gently with a damp cloth to develop cloth ability father crawl mental development communication easy will and monday may pop up are a handy zipper in a carrying case
-
-### Our Rating For This Product
-
-4.3 out of 5 stars
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
->  
-
-
-
-### Pros and Cons
-
-| ✅  Pros | ❌ Cons |
-|-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
-
-
-
----
-
 
 ## Quieting Kids Teepee Play Tent Children
 
-[![null](<https://cache.ndnb.live/3f04add283d57bf8c9a4dc81aab0ee93f7e31d11/74c106d0-578b-11eb-a8b5-f53ffbc71769.jpeg>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
+[![null](<https://images-na.ssl-images-amazon.com/images/I/51T39b-0jTL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
 
 [![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
 
 ### Product Description
 
-itemthis is our new wigwam children a fun game is perfect with your children for the creation perfect for parties or pajamas same day activities such as coloring and reading your child fun have to increase your imagination in this business is tent this tepees made of natural fabrics breathable 100 cotton and unpainted the tent poles are more robust jaw and are free of chemicals and noxious odors substances they can at home and abroad and offer children a sense of privacy and personal space are configured when it allows parents to control their security for children 3 and tent set up this length 47 2 side top 59 level positions length 70 9 and easy to configure lightweight up each a long four rods dismantled into two shorter sticks the business has a window for good air circulation and the case can be closed with a rope
 
 ### Our Rating For This Product
 
@@ -1501,6 +1420,18 @@ itemthis is our new wigwam children a fun game is perfect with your children for
 
 ### Technical Details
 
+| Package Dimensions           | 91 x 15 x 11 cm; 2.9 Kilograms     |
+|------------------------------|------------------------------------|
+| Manufacturer recommended age | 3 years and up                     |
+| Manufacturer reference       | A418092710082133F9*SKSG32XDG5MSZOS |
+| Assembly Required            | No                                 |
+| Batteries Required?          | No                                 |
+| Batteries Included?          | No                                 |
+| Material Type(s)             | Cotton                             |
+| Remote Control Included?     | No                                 |
+| Color                        | Grey Stripes                       |
+| Mfg Recommended age          | 3 year and up                      |
+| ASIN                         | B07HQHZQSQ                         |
 
 ### Customers Say about this product
 
@@ -1523,28 +1454,35 @@ itemthis is our new wigwam children a fun game is perfect with your children for
 
 ## Luvodi Girls Pink Teepee Tent Children
 
-[![null](<https://cache.ndnb.live/8e9998607c8b8a2ab9f53d6bd6278f6f73563bea/70ae8bd0-578b-11eb-af6d-c150f70df58e.jpeg>)](<>)
+[![luvodi-girls-pink-teepee-tent-children](<https://images-na.ssl-images-amazon.com/images/I/61OJ7oqFUsL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/LUVODI-Children-Playhouse-Portable-Outdoor/dp/B07Z38PD34/ref=as_li_ss_tl?dchild=1&keywords=Luvodi+Girls+Pink+Teepee+Tent+Children&qid=1611105558&s=kids&sr=1-4&linkCode=ll1&tag=kidsteepees-21&linkId=f6cbba385c6882bbf1b1fae70751c8f2&language=en_GB>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<>)
+[![luvodi-girls-pink-teepee-tent-children](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<>)
 
 ### Product Description
 
-this itemdurable and robust luvodi children tipis is nontoxic made with 100 natural wood and sycamore linen fabric the durable high strength for a long useful life a solid wooden pole slot for secure provides for the construction while the children play the area of 120 x 120 x 130 cm by assembling children paradises play this game marquee may be a comfortable place to sleep your children relax enjoy rpgs relax himself plays with friends for hours of fun it is the personal space for your child where they can play hearts content up teepees children are an inexpensive toy that many years of enjoyment with memoriesfoldable happy and will provide portable solid shop for the game comes with a manual for easy monday and four leading wooden poles are attached push the connector it is very easy to clean tipi or the house to move at any time it is good to cover features a bedroom game room lounge kindergarten dormitory princess nurserygorgeous home prince this beautiful theater can be customized with colored lights bunting pillows blankets toys and all the rest of your child wants to add it can tiebacks door fin be shaped perfect for independent game a tipi is where children can stay with your favorite toys and book ideal gifts for your children children are hungry to read for a personal space with their toys friends and books in one place to play alone the tipi your game can be a world where they develop their imagination children is it a perfect gift for birthdays christmas and festival gift of reward for their small children
 
 ### Our Rating For This Product
 
 
 
-⭐⭐⭐⭐⭐
+⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions           | 120 x 120 x 130 cm; 1.6 Kilograms |
+|------------------------------|-----------------------------------|
+| Manufacturer recommended age | 6 months and up                   |
+| Item model number            | XJJ162                            |
+| Assembly Required            | Yes                               |
+| Batteries Required?          | No                                |
+| Material Type(s)             | Linen                             |
+| Color                        | Pink                              |
+| Mfg Recommended age          | 6 months and up                   |
+| ASIN                         | B07Z38PD34                        |
 
 ### Customers Say about this product
 
->  
-
-
+>  "You get what you pay for I guess, badly printed messy fabric. The slots in the fabric for the poles are nowhere near big enough and I had to cut the stitches at the top to even fit the wooden poles in. It was impossible to fit the string tie through the holes in the poles."
 
 ### Pros and Cons
 
@@ -1554,10 +1492,7 @@ this itemdurable and robust luvodi children tipis is nontoxic made with 100 natu
 | 👉  |👉   |
 | 👉  |👉   |
 
-
-
 ---
-
 
 ## Inspired By Jewel - Kids Teepee
 
