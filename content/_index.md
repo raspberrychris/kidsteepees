@@ -1295,13 +1295,15 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 ## Elfique Tipi Teepee Double Padded Cover
 
-[![null](<https://images-na.ssl-images-amazon.com/images/I/813r7UVw9QL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
+[![elfique-tipi-teepee-double-padded-cover](<https://images-na.ssl-images-amazon.com/images/I/813r7UVw9QL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
 
-[![null](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
+[![elfique-tipi-teepee-double-padded-cover](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
 
 ### Product Description
 
-The fabric's choice is characterised by simple elegance and tasteful, Zeitgemäβe composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted. We place great emphasis on creating.
+- **ELEGANT & TASTEFUL FABRIC** The fabric's choice is characterised by simple elegance and tasteful, Zeitgemäβe composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted. We place great emphasis on creating.
+
+- **SAFE** The fabric has safety certification OEKO-TEX Standard 100 and certified
 
 ### Our Rating For This Product
 
@@ -1330,9 +1332,9 @@ The fabric's choice is characterised by simple elegance and tasteful, Zeitgemä�
 
 | ✅  Pros | ❌ Cons |
 |-|-|
-| 👉  |👉   |
-| 👉  |👉   |
-| 👉  |👉   |
+| 👉 Excellent quality |👉 Some customers have reported having the wrong teepee sent to them  |
+| 👉 Comes with 3 pillows and a mat |👉 A little expensive   |
+| 👉 Suitable for 3 years and up |👉 Some customers have said it is hard to put up  |
 
 ---
 
@@ -1389,7 +1391,7 @@ The fabric's choice is characterised by simple elegance and tasteful, Zeitgemä�
 
 [![luvodi-girls-pink-teepee-tent-children](<https://images-na.ssl-images-amazon.com/images/I/61OJ7oqFUsL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/LUVODI-Children-Playhouse-Portable-Outdoor/dp/B07Z38PD34/ref=as_li_ss_tl?dchild=1&keywords=Luvodi+Girls+Pink+Teepee+Tent+Children&qid=1611105558&s=kids&sr=1-4&linkCode=ll1&tag=kidsteepees-21&linkId=f6cbba385c6882bbf1b1fae70751c8f2&language=en_GB>)
 
-[![luvodi-girls-pink-teepee-tent-children](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://images-na.ssl-images-amazon.com/images/I/61OJ7oqFUsL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/LUVODI-Children-Playhouse-Portable-Outdoor/dp/B07Z38PD34/ref=as_li_ss_tl?dchild=1&keywords=Luvodi+Girls+Pink+Teepee+Tent+Children&qid=1611105558&s=kids&sr=1-4&linkCode=ll1&tag=kidsteepees-21&linkId=f6cbba385c6882bbf1b1fae70751c8f2&language=en_GB>)
+[![luvodi-girls-pink-teepee-tent-children](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/LUVODI-Children-Playhouse-Portable-Outdoor/dp/B07Z38PD34/ref=as_li_ss_tl?dchild=1&keywords=Luvodi+Girls+Pink+Teepee+Tent+Children&qid=1611105558&s=kids&sr=1-4&linkCode=ll1&tag=kidsteepees-21&linkId=f6cbba385c6882bbf1b1fae70751c8f2&language=en_GB>)
 
 ### Product Description
 
