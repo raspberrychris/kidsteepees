@@ -1,11 +1,11 @@
----
++++
 title = "About"
 description = "kidsteepees.co.uk is the #1 source for finding the best teepees"
 date = "2021-01-16"
 aliases = ["about","about-kids-teepees"]
 author = "kidsteepees.co.uk"
 menu = "main"
----
++++
 
 ## About Us
 
