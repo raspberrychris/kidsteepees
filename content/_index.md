@@ -4,7 +4,7 @@ type: top
 toc: true
 menu:
 weight: 1
-canonicalUrl: “/
+canonicalUrl: “/"
 ---
 
 Welcome to [kidsteepees.co.uk](https://kidsteepees.co.uk) the number one place to find your little one a **children's teepee**! **Kids Teepees** is an independent expert UK based buying guide to finding the best children's teepees.  We have reviewed some of the top teepees for your little ones.  
