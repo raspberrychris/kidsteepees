@@ -1,4 +1,4 @@
-{{- if strings.HasPrefix .Destination "http" -}}
+{{- if strings.HasPrefix .Destination "https" -}}
   <img loading="lazy" src="{{ .Destination | safeURL }}" alt="{{ .Text }}" {{ with .Title}} title="{{ . }}"{{ end }} />
 {{- else -}}
   <img loading="lazy" src="{{ .Destination | safeURL }}" alt="{{ .Text }}" {{ with .Title}} title="{{ . }}"{{ end }} {{ with imageConfig ( printf "static/%s" .Destination ) }} width={{ .Width }} height="{{ .Height }}" {{ end }} />
