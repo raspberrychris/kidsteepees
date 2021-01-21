@@ -16,6 +16,6 @@ menu = "main"
 Growing up I always found teepees exciting places to be and it really helped spur my imagination and engage in what is now known as "pretend play"  ...(previously it was just known as playing!).  The importance of pretend play has been shown in various studies and it [can help a child develop and develop key skills.](https://www.scholastic.com/parents/kids-activities-and-printables/activities-for-kids/arts-and-craft-ideas/importance-pretend-play.html)  Teepees also provide an friendly anecdote to our stressful, complicated and often technology led lives.  They remind us that we can (with our kids) still have lots of fun with imaginative play and teepees.
 
 
-###**Affiliate Disclaimer:**
+### **Affiliate Disclaimer:**
 
 Kidsteepees.co.uk is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.co.uk.
