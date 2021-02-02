@@ -8,3 +8,75 @@ title = "Kids Teepees"
   twitter = true
   whatsapp = true
   email = true
+
+
+
+
+  author = "kidsteepees.co.uk"
+  paginate = 3
+  DefaultContentLanguage = "en"
+  enableInlineShortcodes = true
+  footnoteReturnLinkContents = "^"
+  # Above are configs from hugoBasicExample
+
+
+  theme = "hugo-primer"
+  hasCJKLanguage = true
+  summaryLength = 70
+  pygmentsCodeFences = true
+  pygmentsUseClasses = true
+  googleAnalytics = ""
+  disqusShortname=""
+  copyright = "&copy;kidsteepees.co.uk 2021"
+
+
+  [params]
+  description = ""
+  twitter = ""
+  useIcon = true
+  useTwitterCard = true
+  # exampleSite must not have js share widget: #36
+  # shareTo = ["Twitter", "Hatena", "Facebook", "Pocket"]
+  shareTo = ["Twitter", "Facebook"]
+  showFooterCredits = true
+  math = true
+
+  [[menu.main]]
+  name = "Kids Teepees"
+  URL = "/"
+  weight = 1
+
+  [[menu.main]]
+  name = "About"
+  URL = "/about"
+  weight = 2
+
+  [[menu.main]]
+  name = "Privacy Policy"
+  URL = "/privacy-policy"
+  weight = 2
+  parent = "About"
+
+  [[menu.main]]
+  name = ""
+  URL = "/"
+  weight = 0
+  parent = "Kids Teepees"
+
+  [[menu.main]]
+  name = ""
+  URL = "/"
+  weight = 0
+  parent = "Kids Teepees"
+
+  [[menu.main]]
+  name = ""
+  URL = "/"
+  weight = 0
+  parent = "Kids Teepees"
+
+  [[menu.main]]
+  name = ""
+  URL = "/"
+  weight = 0
+  parent = "Kids Teepees"
