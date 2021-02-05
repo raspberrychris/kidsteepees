@@ -1,8 +1,8 @@
 ---
-title: Welcome to kidsteepees.co.uk!
+title: Kids Teepees
 type: top
 toc: true
-menu:
+menu: main
 weight: 1
 canonicalUrl: “/"
 ---
