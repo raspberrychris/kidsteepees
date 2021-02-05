@@ -58,14 +58,14 @@ title = "Kids Teepees"
   parent = "About"
 
   [[menu.main]]
-  name = ""
-  URL = "/"
+  name = "Kids Teepees with Lights"
+  URL = "kids-teepees-with-lights"
   weight = 0
   parent = "Kids Teepees"
 
   [[menu.main]]
-  name = ""
-  URL = "/"
+  name = "Kids Teepees with Mats"
+  URL = "kids-teepees-with-mats"
   weight = 0
   parent = "Kids Teepees"
 

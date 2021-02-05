@@ -206,7 +206,8 @@ ul.share-icons li > * .label {
     max-width: 1012px;
   }
   #side {
-    display: none;
+    display: block;
+    padding: 1.5rem;
   }
 }
 
