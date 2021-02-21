@@ -22,11 +22,11 @@
     {{ if not .Site.BuildDrafts }}
     {{ template "_internal/google_analytics_async.html" . }}
     {{ end }}
-
+  
     <title>
-    {{ .Title }} &ndash; {{ .Site.Title }}
-    {{ end }}
-    
+      {{ block "title" . }}
+      {{ .Site.Title }}
+      {{ end }}
     </title>
     {{ with .Keywords }}
     <meta content="{{ delimit . `, ` }}" name="keywords">
