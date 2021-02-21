@@ -25,7 +25,7 @@ We only choose the best hideaways that your kids will absolutely **LOVE!** We ha
 
 Browse the very **best Kids Teepees** from all around the internet in one single page.  Check out our blog for the latest updates.  
 
-## Canicove Teepee Tent Kids Review- (OUR #1 Pick!)
+## [Canicove Teepee Tent Kids Review- (OUR #1 Pick!)](carnicove-teepee-tent-kids-review)
 
 [![carnicove-teepee-tent-kids](<https://images-na.ssl-images-amazon.com/images/I/712KhtB2k4L._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
