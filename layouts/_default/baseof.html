@@ -22,13 +22,11 @@
     {{ if not .Site.BuildDrafts }}
     {{ template "_internal/google_analytics_async.html" . }}
     {{ end }}
-    <meta charset="utf-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1">
-    <title>
-      {{ block "title" . }}
-      {{ .Site.Title }}
-      {{ end }}
-    </title>
+
+
+
+    <title>{{ block "title" . }}{{ if not .IsHome }}{{ .Title }} - {{ end }}{{ .Site.Title }}{{ end }}</title>
+
     {{ with .Keywords }}
     <meta content="{{ delimit . `, ` }}" name="keywords">
     {{ end }}
