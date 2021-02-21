@@ -79,7 +79,7 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 ---
 
-## Boppi® Teepee Play Tent Large Outdoor Tent Review
+## [Boppi® Teepee Play Tent Large Outdoor Tent Review](/boppi-teepee-play-tent-large-outdoor-tent-review)
 
 [![boppi-teepee-play-tent-large-outdoor](<https://images-na.ssl-images-amazon.com/images/I/71QyFh9VlEL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/boppi%C2%AE-Outdoor-Portable-Childrens-Playhouse/dp/B08NW5S2G4/?tag=kidsteepees-21>)
 
