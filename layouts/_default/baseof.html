@@ -23,10 +23,11 @@
     {{ template "_internal/google_analytics_async.html" . }}
     {{ end }}
 
-
-
-    <title>{{ block "title" . }}{{ if not .IsHome }}{{ .Title }} - {{ end }}{{ .Site.Title }}{{ end }}</title>
-
+    <title>
+    {{ .Title }} &ndash; {{ .Site.Title }}
+    {{ end }}
+    
+    </title>
     {{ with .Keywords }}
     <meta content="{{ delimit . `, ` }}" name="keywords">
     {{ end }}
