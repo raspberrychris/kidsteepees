@@ -1,6 +1,6 @@
 baseURL = "/"
 languageCode = "en-us"
-title = "Kids Teepees - Kidteepees.co.uk"
+title = "Kids Teepees, Play tent teepees for Children"
 
 [Params.social.share]
   facebook = true
@@ -13,7 +13,7 @@ title = "Kids Teepees - Kidteepees.co.uk"
 
 
   author = "kidsteepees.co.uk"
-  paginate = 3
+  paginate = 10
   DefaultContentLanguage = "en"
   enableInlineShortcodes = true
   footnoteReturnLinkContents = "^"
