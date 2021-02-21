@@ -1,6 +1,6 @@
 baseURL = "/"
 languageCode = "en-us"
-title = "Kids Teepees"
+title = "Kids Teepees - Kidteepees.co.uk"
 
 [Params.social.share]
   facebook = true
