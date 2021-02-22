@@ -49,7 +49,7 @@ title = "Kids Teepees, Play tent teepees for Children"
   [[menu.main]]
   name = "About"
   URL = "/about"
-  weight = 2
+  weight = 1
 
   [[menu.main]]
   name = "About"
