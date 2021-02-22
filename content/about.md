@@ -9,7 +9,7 @@ menu = "main"
 
 ## About Us
 
-**Kids Teepees** was started by Chris a new father, to have one place where you could find all of the different teepees in one place along with interesting content relating to this niche.  Although there are many specialist shops available for teepees on the internet regarding teepees, I wanted to create a site that was looking only at **the best teepees** and producing a helpful guide for parents, grandparents or anyone who is looking to purchase a teepee for a little one.
+**Kids Teepees** was started by Chris, to have one place where you could find all of the different teepees in one place along with interesting content relating to this niche.  Although there are many specialist shops available for teepees on the internet regarding teepees, I wanted to create a site that was looking only at **the best teepees** and producing a helpful guide for parents, grandparents or anyone who is looking to purchase a teepee for a little one.
 
 ## My love for Teepees developed when I was young
 
@@ -18,4 +18,4 @@ Growing up I always found teepees exciting places to be and it really helped spu
 
 ### **Affiliate Disclaimer:**
 
-Kidsteepees.co.uk is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.co.uk.
+[Kidsteepees.co.uk](/) is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program designed to provide a means for sites to earn advertising fees by advertising and linking to Amazon.co.uk.
