@@ -54,7 +54,7 @@ title = "Kids Teepees, Play tent teepees for Children"
   [[menu.main]]
   name = "About"
   URL = "/about"
-  weight = 2
+  weight = 1
   parent = "About"
 
   [[menu.main]]
@@ -66,7 +66,7 @@ title = "Kids Teepees, Play tent teepees for Children"
   [[menu.main]]
   name = "Cookie Policy"
   URL = "/cookie-policy"
-  weight = 2
+  weight = 3
   parent = "About"
 
   [[menu.main]]
