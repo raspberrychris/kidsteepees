@@ -41,14 +41,11 @@ title = "Kids Teepees, Play tent teepees for Children"
   showFooterCredits = true
   math = true
 
-  [[menu.main]]
-  name = "Kids Teepees"
-  URL = "/"
-  weight = 1
+
 
   [[menu.main]]
   name = "About"
-  URL = "about"
+  URL = "/about"
   weight = 1
 
   [[menu.main]]
@@ -64,19 +61,18 @@ title = "Kids Teepees, Play tent teepees for Children"
   parent = "About"
 
   [[menu.main]]
+  name = "Kids Teepees"
+  URL = "/"
+  weight = 1
+
+  [[menu.main]]
   name = "Kids Teepees with Lights"
   URL = "kids-teepees-with-lights"
-  weight = 0
+  weight = 2
   parent = "Kids Teepees"
 
   [[menu.main]]
   name = "Kids Teepees with Mats"
   URL = "kids-teepees-with-mats"
-  weight = 0
-  parent = "Kids Teepees"
-
-  [[menu.main]]
-  name = ""
-  URL = "/"
-  weight = 0
+  weight = 3
   parent = "Kids Teepees"
