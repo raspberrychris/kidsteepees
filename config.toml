@@ -78,3 +78,8 @@ title = "Kids Teepees, Play tent teepees for Children"
   URL = "/cookie-policy"
   weight = 2
   parent = "About"
+
+  [[menu.main]]
+  name = "About Us"
+  URL = "about-us"
+  weight = 2
