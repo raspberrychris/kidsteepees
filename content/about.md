@@ -5,7 +5,6 @@ date: "2021-01-16"
 author: "kidsteepees.co.uk"
 menu: "main"
 url: "about"
-weight: 3
 ---
 
 **Kids Teepees** was started by Chris, to have one place where you could find all of the different teepees in one place along with interesting content relating to this niche.  Although there are many specialist shops available for teepees on the internet regarding teepees, I wanted to create a site that was looking only at **the best teepees** and producing a helpful guide for parents, grandparents or anyone who is looking to purchase a teepee for a little one.
