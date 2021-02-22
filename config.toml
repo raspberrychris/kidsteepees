@@ -48,18 +48,18 @@ title = "Kids Teepees, Play tent teepees for Children"
 
   [[menu.main]]
   name = "About"
-  URL = "/about"
+  URL = "about"
   weight = 1
 
   [[menu.main]]
   name = "Privacy Policy"
-  URL = "/privacy-policy"
+  URL = "privacy-policy"
   weight = 2
   parent = "About"
 
   [[menu.main]]
   name = "Cookie Policy"
-  URL = "/cookie-policy"
+  URL = "cookie-policy"
   weight = 3
   parent = "About"
 
@@ -72,12 +72,6 @@ title = "Kids Teepees, Play tent teepees for Children"
   [[menu.main]]
   name = "Kids Teepees with Mats"
   URL = "kids-teepees-with-mats"
-  weight = 0
-  parent = "Kids Teepees"
-
-  [[menu.main]]
-  name = ""
-  URL = "/"
   weight = 0
   parent = "Kids Teepees"
 
