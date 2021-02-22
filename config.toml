@@ -47,7 +47,7 @@ title = "Kids Teepees, Play tent teepees for Children"
 
   [[menu.main]]
   name = "Kids Teepees"
-  URL = "/"
+  URL = "kidsteepees.co.uk"
   weight = 1
 
   [[menu.main]]
@@ -65,7 +65,7 @@ title = "Kids Teepees, Play tent teepees for Children"
   [[menu.main]]
   name = "About"
   URL = "about"
-  weight = 1
+  weight = 2
 
   [[menu.main]]
   name = "Privacy Policy"
