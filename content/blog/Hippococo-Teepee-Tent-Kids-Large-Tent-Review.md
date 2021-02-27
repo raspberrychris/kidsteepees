@@ -1,7 +1,9 @@
 ---
 title: "Hippococo Teepee Tent Kids Large Tent Review"
 date: 2021-02-27T14:19:24Z
-draft: true
+draft: false
+canonicalUrl: “/hippococo-teepee-tent-kids-large-tent-review"
+url: hippococo-teepee-tent-kids-large-tent-review
 ---
 
 ## Hippococo Teepee Tent  Kids: Large Tent Review

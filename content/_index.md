@@ -282,7 +282,7 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ---
 
-## Arkmiido Kids Teepee Play Tent Foldable Review
+## [Arkmiido Kids Teepee Play Tent Foldable Review](/arkmiido-kids-teepee-play-tent-foldable-review)
 
 [![arkiido-kids-teepee-play-tent-foldable](<https://images-eu.ssl-images-amazon.com/images/I/51u%2B-6lKVfL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Arkmiido-Teepee-Foldable-Playhouse-Outdoor/dp/B08C2M6P5D/?tag=kidsteepees-21>)
 
@@ -326,7 +326,7 @@ Very spacious easy to assembly! Definitely recommend" 👍
 
 ---
 
-## Asweets Teepee Tent Kids Canvas Review
+## [Asweets Teepee Tent Kids Canvas Review](/asweets-teepee-tent-kids-canvas-review)
 
 [![asweets-teepee-tent-kids-canvas](<https://images-na.ssl-images-amazon.com/images/I/61vPnCyZ7KL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Asweets-Teepee-Canvas-Outdoor-Children/dp/B07K7FZBGG/?tag=kidsteepees-21>)
 
@@ -378,7 +378,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Treebud Kids Teepee Tent
+## [Treebud Kids Teepee Tent](/treebud-kids-teepee-tent)
 
 [![treebud-kids-teepee-tent](<https://images-eu.ssl-images-amazon.com/images/I/A1l4x7B50ZL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/TreeBud-Teepee-Indoor-Outdoor-Childrens/dp/B087BY576F/?tag=kidsteepees-21>)
 
@@ -422,7 +422,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Uniquevc Kids Princess Play Tent Indoor Review
+## [Uniquevc Kids Princess Play Tent Indoor Review](/uniquevc-kids-princess-play-tent-indoor-review)
 
 [![uniquevc-kids-princess-play-tent-indoor](<https://images-na.ssl-images-amazon.com/images/I/812nC%2BYKapL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/UniqueVC-Princess-Children-Playhouses-Christmas/dp/B08DRFHG5X/?tag=kidsteepees-21>)
 
@@ -466,7 +466,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Triclicks Kids Teepee Play Tent Review
+## [Triclicks Kids Teepee Play Tent Review](/triclicks-kids-teepee-play-tent-review)
 
 [![tricklicks-kids-teepee-play-tent](<https://images-na.ssl-images-amazon.com/images/I/61lGuEGkbAL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Triclicks-Kids-Teepee-Play-Tent/dp/B07KMQ2RVL/?tag=kidsteepees-21>)
 
@@ -515,7 +515,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Little Dove Kids Teepee Review
+## [Little Dove Kids Teepee Review](/little-dove-kids-teepee-review)
 
 [![little-dove-kids-teepee](<https://images-eu.ssl-images-amazon.com/images/I/41JdFa2bCOL.__AC_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Little-dove-Teepee-Children-Outdoor/dp/B07CQZRRNR/?tag=kidsteepees-21>)
 
@@ -563,7 +563,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Moritz & Moritz Teepee Tent Review
+## [Moritz & Moritz Teepee Tent Review](/moritz-moritz-teepee-tent-review)
 
 [![moritz-moritz-teepee-tent](<https://images-na.ssl-images-amazon.com/images/I/711%2BLznSdcL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Moritz-Teepee-Children%C2%B4s-window-Pattern/dp/B07JBCTQTV/?tag=kidsteepees-21>)
 
@@ -614,7 +614,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Peradix Kids Teepee Tent Foldable Review  - (RECOMMENDED!)
+## [Peradix Kids Teepee Tent Foldable Review  - (RECOMMENDED!)](/peradix-kids-teepee-tent-foldable-review)
 
 [![peredix-kids-teepee-tent-foldable](<https://images-na.ssl-images-amazon.com/images/I/61eGKLWpJJL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Peradix-Foldable-Portable-White-Grey-Playhouse/dp/B088ND5LLK/?tag=kidsteepees-21>)
 
@@ -658,7 +658,7 @@ The size is enough for 2-3 children to play inside and the children absolutely l
 
 ---
 
-## Kids Teepee Tent Foldable Children Play Tent Review
+## [Kids Teepee Tent Foldable Children Play Tent Review](/kids-teepee-tent-foldable-children-play-tent-review)
 
 [![kids-teepee-tent-foldable](<https://images-eu.ssl-images-amazon.com/images/I/51nxIczSCOL.__AC_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07KPVXDW2/?tag=kidsteepees-21>)
 
@@ -700,7 +700,7 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ---
 
-## Kids Teepee Tent Foldable Review
+## [Kids Teepee Tent Foldable Review](/kids-teepee-tent-foldable-review)
 
 [![kids-teepee-tent-foldable](<https://images-na.ssl-images-amazon.com/images/I/51-KruEISAL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Kids-Teepee-Tent-Foldable-Children/dp/B07RWWT63B/?tag=kidsteepees-21>)
 
@@ -740,7 +740,7 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ---
 
-## Aniikiss 6' Giant Canvas Kids Play Review
+## [Aniikiss 6' Giant Canvas Kids Play Review](/aniikiss-6-giant-canvas-kids-play-review)
 
 [![aniikiss-6-giant-canvas-kids-play](<https://images-na.ssl-images-amazon.com/images/I/71u8WXIg3eL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/AniiKiss-Canvas-Teepee-Children-Anti-collapse/dp/B075LB3PZW/?tag=kidsteepees-21>)
 
@@ -784,7 +784,7 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ---
 
-## Kids Teepee Children Game Playhouse Tent Review
+## [Kids Teepee Children Game Playhouse Tent Review](/kids-teepee-children-game-playhouse-tent-review)
 
 [![kids-teepee-children-game-playhouse-tent](<https://images-na.ssl-images-amazon.com/images/I/71iLbcEPvBL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Children-Playhouse-Skin-friendly-Material-Portable/dp/B082SV88MY/?tag=kidsteepees-21>)
 
@@ -825,7 +825,7 @@ Easy-to-assemble lightweight kids play tent. Size: Standing Size: Standing 120cm
 
 ---
 
-## Pericross Kids Castle Tee-Pee Tent Princess Review
+## [Pericross Kids Castle Tee-Pee Tent Princess Review](/pericross-kids-castle-tee-pee-tent-princess-review)
 
 [![pericross-kids-castle-teepee-tent-princess](<https://images-eu.ssl-images-amazon.com/images/I/61-Jm4%2BJdeL.__AC_SX300_SY300_QL70_ML2_.jpg>)](<https://www.amazon.co.uk/Princess-Castle-Hexagon-Playhouse-Indoor/dp/B01E9VN61K/?tag=kidsteepees-21>)
 
@@ -871,7 +871,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ---
 
-## Tipi Teepee Elfique Double Padded Cover Review
+## [Tipi Teepee Elfique Double Padded Cover Review](/tipi-teepee-elfique-double-padded-cover-review)
 
 [![tipi-teepee-elfique-double-padded-cover](<https://images-na.ssl-images-amazon.com/images/I/81qyJksERbL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798SMM9F/?tag=kidsteepees-21>)
 
@@ -919,7 +919,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ---
 
-## Fbsport Kids Indian Teepee Play Tent Review
+## [Fbsport Kids Indian Teepee Play Tent Review]/fbsport-kids-indian-teepee-play-tent-review)
 
 [![fbsport-kids-indian-teepee-play-tent](<https://images-na.ssl-images-amazon.com/images/I/81WtsT2YISL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
 
@@ -967,7 +967,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ---
 
-## Toysland Indoor Indian Playhouse Teepee Tent Review
+## [Toysland Indoor Indian Playhouse Teepee Tent Review](/toysland-indoor-indian-playhouse-teepee-tent)
 
 [![toysland-indoor-indian-playhouse-teepee-tent](<https://images-na.ssl-images-amazon.com/images/I/51yQhJMR2JL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Toysland-Indoor-Indian-Playhouse-Toddlers/dp/B076139D1K/?tag=kidsteepees-21>)
 
@@ -1011,7 +1011,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ---
 
-## Funwithmum Teepee Tent Children's Tipi Review
+## [Funwithmum Teepee Tent Children's Tipi Review](/funwithmum-teepee-tent-childrens-tipi-review)
 
 [![funwithmum-teepee-tent-childrens-tipi](<https://images-na.ssl-images-amazon.com/images/I/81zcDwFyuXL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/FUNwithMUM-Teepee-Tent-Pink-Cloud/dp/B01JOVMN9G/?tag=kidsteepees-21>)
 
