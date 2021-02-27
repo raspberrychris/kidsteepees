@@ -230,7 +230,7 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ---
 
-## Badabulle Indoor Or Outdoor Tipi Review
+## [Badabulle Indoor Or Outdoor Tipi Review](/badabulle-indoor-or-outdoor-tipi-review)
 
 [![badabulle-indoor-or-outdoor-tipi](<https://images-na.ssl-images-amazon.com/images/I/51HUUdOFBrL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Badabulle-Indoor-Outdoor-Tepee-Teepee/dp/B07VFDJGXK/?tag=kidsteepees-21>)
 
