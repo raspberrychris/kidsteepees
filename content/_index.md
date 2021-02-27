@@ -919,7 +919,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ---
 
-## [Fbsport Kids Indian Teepee Play Tent Review]/fbsport-kids-indian-teepee-play-tent-review)
+## [Fbsport Kids Indian Teepee Play Tent Review](/fbsport-kids-indian-teepee-play-tent-review)
 
 [![fbsport-kids-indian-teepee-play-tent](<https://images-na.ssl-images-amazon.com/images/I/81WtsT2YISL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Indian-Playhouse-Princess-toddler-Outdoor/dp/B07GLNV6QB/?tag=kidsteepees-21>)
 
