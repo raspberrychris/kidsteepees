@@ -2,6 +2,8 @@
 title: "Triclicks Kids Teepee Play Tent Review"
 date: 2021-02-27T14:20:12Z
 draft: false
+canonicalUrl: “/triclicks-kids-teepee-play-tent-review"
+url: triclicks-kids-teepee-play-tent-review
 ---
 
 ## Triclicks Kids Teepee Play Tent Review

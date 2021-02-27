@@ -2,6 +2,8 @@
 title: "Peradix Kids Teepee Tent Foldable Review"
 date: 2021-02-27T14:20:13Z
 draft: false
+canonicalUrl: “/peradix-kids-teepee-tent-foldable-review"
+url: peradix-kids-teepee-tent-foldable-review
 ---
 
 ## Peradix Kids Teepee Tent Foldable Review  - (RECOMMENDED!)

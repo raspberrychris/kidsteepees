@@ -2,6 +2,8 @@
 title: "Fbsport Kids Indian Teepee Play Tent Review"
 date: 2021-02-27T14:20:13Z
 draft: false
+canonicalUrl: “/fbsport-kids-indian-teepee-play-tent-review"
+url: fbsport-kids-indian-teepee-play-tent-review
 ---
 
 ## Fbsport Kids Indian Teepee Play Tent Review

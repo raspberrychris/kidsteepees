@@ -2,6 +2,8 @@
 title: "Uniquevc Kids Princess Play Tent Indoor Review"
 date: 2021-02-27T14:20:12Z
 draft: false
+canonicalUrl: “/uniquevc-kids-princess-play-tent-indoor-review"
+url: uniquevc-kids-princess-play-tent-indoor-review
 ---
 
 ## Uniquevc Kids Princess Play Tent Indoor Review

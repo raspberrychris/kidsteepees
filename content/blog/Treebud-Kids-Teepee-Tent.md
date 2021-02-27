@@ -2,6 +2,8 @@
 title: "Treebud Kids Teepee Tent"
 date: 2021-02-27T14:20:12Z
 draft: false
+canonicalUrl: “/treebud-kids-teepee-tent"
+url: treebud-kids-teepee-tent
 ---
 
 ## Treebud Kids Teepee Tent

@@ -2,6 +2,8 @@
 title: "Pericross Kids Castle Tee Pee Tent Princess Review"
 date: 2021-02-27T14:20:13Z
 draft: false
+canonicalUrl: “/pericross-kids-castle-tee-pee-tent-princess-review"
+url: pericross-kids-castle-tee-pee-tent-princess-review
 ---
 
 ## Pericross Kids Castle Tee-Pee Tent Princess Review

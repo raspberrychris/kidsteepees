@@ -2,6 +2,8 @@
 title: "Asweets Teepee Tent Kids Canvas Review"
 date: 2021-02-27T14:20:12Z
 draft: false
+canonicalUrl: “/asweets-teepee-tent-kids-canvas-review"
+url: asweets-teepee-tent-kids-canvas-review
 ---
 
 ## Asweets Teepee Tent Kids Canvas Review

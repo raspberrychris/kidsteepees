@@ -2,6 +2,8 @@
 title: "Kids Teepee Children Game Playhouse Tent Review"
 date: 2021-02-27T14:20:13Z
 draft: false
+canonicalUrl: “/kids-teepee-children-game-playhouse-tent-review"
+url: kids-teepee-children-game-playhouse-tent-review
 ---
 
 

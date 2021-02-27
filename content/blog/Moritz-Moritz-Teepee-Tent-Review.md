@@ -2,6 +2,8 @@
 title: "Moritz Moritz Teepee Tent Review"
 date: 2021-02-27T14:20:13Z
 draft: false
+canonicalUrl: “/moritz-moritz-teepee-tent-review"
+url: moritz-moritz-teepee-tent-review
 ---
 
 ## Moritz & Moritz Teepee Tent Review

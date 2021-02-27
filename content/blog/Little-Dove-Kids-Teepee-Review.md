@@ -2,6 +2,8 @@
 title: "Little Dove Kids Teepee Review"
 date: 2021-02-27T14:20:13Z
 draft: false
+canonicalUrl: “/little-dove-kids-teepee-review"
+url: little-dove-kids-teepee-review
 ---
 
 ## Little Dove Kids Teepee Review

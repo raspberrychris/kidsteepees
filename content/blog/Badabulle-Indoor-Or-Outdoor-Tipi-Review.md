@@ -2,6 +2,8 @@
 title: "Badabulle Indoor or Outdoor Tipi Review"
 date: 2021-02-27T14:20:01Z
 draft: false
+canonicalUrl: “/badabulle-indoor-or-outdoor-tipi-review"
+url: badabulle-indoor-or-outdoor-tipi-review
 ---
 
 ## Badabulle Indoor Or Outdoor Tipi Review

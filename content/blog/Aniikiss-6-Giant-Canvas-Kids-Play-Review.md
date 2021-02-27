@@ -2,6 +2,8 @@
 title: "Aniikiss 6 Giant Canvas Kids Play Review"
 date: 2021-02-27T14:20:13Z
 draft: false
+canonicalUrl: “/aniikiss-6-giant-canvas-kids-play-review"
+url: aniikiss-6-giant-canvas-kids-play-review
 ---
 
 ## Aniikiss 6' Giant Canvas Kids Play Review
