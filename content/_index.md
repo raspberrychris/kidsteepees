@@ -124,7 +124,7 @@ BUILT IN POCKET, FLOOR, WINDOW + FLAGS: As you check out the pictures you will n
 
 ---
 
-## Funwithmum Teepee Tent Children's Tipi Review
+## [Funwithmum Teepee Tent Children's Tipi Review](/funwithmum-teepee-tent-childrens-tipi-review)
 
 [![funwithmum-teepee-tent-childrens-tipi](<https://images-na.ssl-images-amazon.com/images/I/41QuFt7doNL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01NH37AO4/?tag=kidsteepees-21>)
 
@@ -177,7 +177,7 @@ Package includes: 1x Teepee Tent, 1x Floor Mat, 3x Pillows, 4x Wooden Pools, 1x 
 
 ---
 
-## Hippococo Teepee Tent  Kids: Large Tent Review
+## [Hippococo Teepee Tent  Kids: Large Tent Review](/Hippococo-Teepee-Tent-Kids-Large-Tent-Review)
 
 [![Hippococo-Teepee-Tent-Kids-Large](<https://images-na.ssl-images-amazon.com/images/I/51%2B-6DnNb9L._AC_.jpg>)](<https://www.amazon.co.uk/Hippococo-Foldable-Reinforced-Outdoor-Accessory/dp/B07B8XZ31R/?tag=kidsteepees-21>)
 
@@ -916,52 +916,6 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 | 👉 Great Design |👉 Customers have reported having problems putting the tent together  |
 | 👉 Comes with nice accessories |👉 Unstable  |
 | 👉 Good quality materials |👉 Customers have reported issues with the sewing  |
-
----
-
-## Funwithmum Teepee Tent Children's Tipi Review
-
-[![funwithmum-teepee-tent-childrens-tipi](<https://images-na.ssl-images-amazon.com/images/I/41ml%2Bu1ReLL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
-
-[![funwithmum-teepee-tent-childrens-tipi](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-tent-floor-mat-pillows/dp/B01MU7RTMH/?tag=kidsteepees-21>)
-
-### Product Description
-
-- **OUTSIDE AND INSIDE*** It will be perfect for your apartment, patio, balcony or garden. It will embellish any interior and make it cozy. It can hold not only the child, but also the parent, happy to read the little one a bedtime story.
-
-- **LIGHTWEIGHT AND EASILY FOLDABLE** The tent is light and easily foldable, so it can be freely transported and moved.
-
-- **BRIGHT COLOURFUL DESIGN** It is made of two colorful pieces of fabric. It has a cute window and laced flaps. Inside, there are 2 pockets for your little one's treasures.
-
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐
-
-### Technical Details
-
-| Product Dimensions           | 100 x 100 x 180 cm; 4 Kilograms |
-|------------------------------|---------------------------------|
-| Manufacturer recommended age | 12 months and up                |
-| Assembly Required            | No                              |
-| Batteries Required?          | No                              |
-| Batteries Included?          | No                              |
-| Material Type(s)             | Polyester, Cotton               |
-| Remote Control Included?     | No                              |
-| Mfg Recommended age          | 12 months and up                |
-| ASIN                         | B01MU7RTMH                      |
-
-### Customers Say about this product
-
->  "Our son loves to play in the tent, it was a good investment. Can be used for years. He has his privacy in it and reads his book. We bought it for the first birthday."
-
-### Pros and Cons
-
-| ✅  Pros | ❌ Cons |
-|-|-|
-| 👉 Long life and durable |👉 Pricy!  |
-| 👉 Good Quality Tipi and cushions |👉 Not many customer reviews  |
-| 👉 Colourful Design |👉 Cheaper alternatives may have better design  |
 
 ---
 
