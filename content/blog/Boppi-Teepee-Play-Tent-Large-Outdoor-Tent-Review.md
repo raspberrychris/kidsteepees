@@ -1,7 +1,7 @@
 ---
 title: Boppi Teepee Play Tent Large Outdoor Tent Review
 type: top
-toc: true
+toc: false
 menu:
 weight: 1
 canonicalUrl: “/boppi-teepee-play-tent-large-outdoor-tent-review"

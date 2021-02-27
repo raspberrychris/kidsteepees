@@ -1,7 +1,7 @@
 ---
 title: "Triclicks Kids Teepee Play Tent Review"
 date: 2021-02-27T14:20:12Z
-draft: true
+draft: false
 ---
 
 ## Triclicks Kids Teepee Play Tent Review

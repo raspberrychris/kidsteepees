@@ -1,7 +1,7 @@
 ---
 title: "Kids Teepee Tent Foldable Children Play Tent Review"
 date: 2021-02-27T14:20:13Z
-draft: true
+draft: false
 ---
 
 ## Kids Teepee Tent Foldable Children Play Tent Review
