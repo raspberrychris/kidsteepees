@@ -1019,7 +1019,7 @@ Nice and airy through the curtains; otherwise I'll find the air jams up quickly 
 
 ### Product Description
 
-- **EASILY FOLDABLE** The tent is light and easily foldable, so it can be freely transported and moved. It is made of two colorful pieces of fabric.
+- **EASILY FOLDABLE** The tent is light and easily foldable, so it can be freely transported and moved. It is made of two colourful pieces of fabric.
 
 - **CUTE DESIGN** It has a cute window and laced flaps. Inside, there are 2 pockets for your little one's treasures.
 
@@ -1094,9 +1094,7 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ### Customers Say about this product
 
->  
-
-
+>  "A beautiful, quick-to-build and spacious tipi tent! Visually totally beautiful and also the quality is great. I also noticed that after unpacking the tent did not smell at all."
 
 ### Pros and Cons
 
@@ -1162,7 +1160,7 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ### Product Description
 
-- **GOOD VALUE**  This teepee is a quirky shape and has a native american influenced design on the outside.
+- **GOOD VALUE**  This teepee is a quirky shape and has a native American influenced design on the outside.
 - **STRONG MATERIALS** Made from strong polyester this is going to be a hard wearing teepee.
 
 ### Our Rating For This Product
@@ -1255,7 +1253,7 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 ### Product Description
 
-- **ELEGANT & TASTEFUL FABRIC** The fabric's choice is characterised by simple elegance and tasteful, Zeitgemäβe composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted. We place great emphasis on creating.
+- **ELEGANT & TASTEFUL FABRIC** The fabric's choice is characterised by simple elegance and tasteful, composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted. We place great emphasis on creating.
 
 - **SAFE** The fabric has safety certification OEKO-TEX Standard 100 and certified
 
@@ -1300,7 +1298,7 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 ### Product Description
 
-- **100% NATURAL** This teepee tent is made of 100% natural, breathable and unpainted cotton canvas. The tent poles are made of sturdy pine wood and are free of chemical odors and harmful substances.
+- **100% NATURAL** This teepee tent is made of 100% natural, breathable and unpainted cotton canvas. The tent poles are made of sturdy pine wood and are free of chemical odours and harmful substances.
 
 - **EASY TO SETUP** They can be setup either at home or outside and provide children with a feeling of privacy and personal space, while allowing parents to monitor them for their safety. For children ages 3 and up.
 
