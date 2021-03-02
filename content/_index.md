@@ -1106,7 +1106,7 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ---
 
-## Home-Ever Wigwam Teepee Play Tent Review
+## [Home-Ever Wigwam Teepee Play Tent Review](/home-ever-wigwam-teepee-play-tent-review)
 
 [![home-ever-wigwam-teepee-play-tent](<https://images-na.ssl-images-amazon.com/images/I/716qK3C-SoL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Home-ever-Wigwam-Teepee-Outdoor-Skyscraper/dp/B07F38W6L8/?tag=kidsteepees-21>)
 
@@ -1197,55 +1197,7 @@ Dimensions: Height Unfolded: 150 cm; Width of the base: 100/100 cm square
 
 ---
 
-## Elfique Tipi Teepee Double Padded Cover Review
-
-[![elfique-tipi-teepee-double-padded-cover](<https://images-na.ssl-images-amazon.com/images/I/81qGSP1Xs3L._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
-
-[![elfique-tipi-teepee-double-padded-cover](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B0798QX3ZQ/?tag=kidsteepees-21>)
-
-### Product Description
-
-- **INNOVATIVE** Our Baumwollenes tent offers an innovative alternative for tents made of plastic, because it is breathable. It can be used in
-Summer Outdoor Decoration for the garden, balcony or patio. Also you will find in the tent has plenty of room for when you want your new born Indian stories or princess fairy tales reading.
-
-- **POCKETS INSIDE** Pockets inside the tent allow your children to have easy storage.
-
-- **ELEGANT FABRIC** The fabric's choice is characterised by simple elegance and tasteful.  The composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted.
-
-### Our Rating For This Product
-
-4.6 out of 5 stars
-
-⭐⭐⭐⭐
-
-### Technical Details
-
-| Product Dimensions           | 110.01 x 110.01 x 140 cm; 4.36 Kilograms |
-|------------------------------|------------------------------------------|
-| Manufacturer recommended age | 3 years and up                           |
-| Assembly Required            | No                                       |
-| Batteries Required?          | No                                       |
-| Batteries Included?          | No                                       |
-| Material Type(s)             | Cotton                                   |
-| Remote Control Included?     | No                                       |
-| Mfg Recommended age          | 3 year and up                            |
-| ASIN                         | B0798QX3ZQ                               |
-
-### Customers Say about this product
-
->  "Excellent high quality product"
-
-### Pros and Cons
-
-| ✅  Pros | ❌ Cons |
-|-|-|
-| 👉 Excellent Quality  |👉 More on the expensive side!  |
-| 👉 Beautiful, thoughtful design |👉 Not much  |
-| 👉 Easy to dissemble |👉 Not much  |
-
----
-
-## Elfique Tipi Teepee Double Padded Cover Review
+## [Elfique Tipi Teepee Double Padded Cover Review](/elfique-tipi-teepee-double-padded-cover-review)
 
 [![elfique-tipi-teepee-double-padded-cover](<https://images-na.ssl-images-amazon.com/images/I/813r7UVw9QL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Elfique-Teepee-Double-Padded-Pillow/dp/B079JS8GVJ/?tag=kidsteepees-21>)
 
@@ -1290,7 +1242,7 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 ---
 
-## Quieting Kids Teepee Play Tent Children Review
+## [Quieting Kids Teepee Play Tent Children Review](quieting-kids-teepee-play-tent-children-review)
 
 [![quieting-kids-teepee-play-tent-children](<https://images-na.ssl-images-amazon.com/images/I/51T39b-0jTL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/Quieting-Teepee-Children-Playhouse-Stripes/dp/B07HQHZQSQ/?tag=kidsteepees-21>)
 
@@ -1339,7 +1291,7 @@ Summer Outdoor Decoration for the garden, balcony or patio. Also you will find i
 
 ---
 
-## Luvodi Girls Pink Teepee Tent Children Review
+## [Luvodi Girls Pink Teepee Tent Children Review](/luvodi-girls-pink-teepee-tent-children-review)
 
 [![luvodi-girls-pink-teepee-tent-children](<https://images-na.ssl-images-amazon.com/images/I/61OJ7oqFUsL._AC_SX425_.jpg>)](<https://www.amazon.co.uk/LUVODI-Children-Playhouse-Portable-Outdoor/dp/B07Z38PD34/ref=as_li_ss_tl?dchild=1&keywords=Luvodi+Girls+Pink+Teepee+Tent+Children&qid=1611105558&s=kids&sr=1-4&linkCode=ll1&tag=kidsteepees-21&linkId=f6cbba385c6882bbf1b1fae70751c8f2&language=en_GB>)
 
