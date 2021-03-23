@@ -14,6 +14,8 @@ url: badabulle-indoor-or-outdoor-tipi-review
 
 ### Product Description
 
+The Badabulle Indoor or Outdoor Tipi is a tepee that your child will love! The assembly is really easy: simply open the fabric, put the 4 pegs in the ground and you're done! It takes no more than 5 minutes to set up. This tipi can be used both indoors and outdoors. Its large size makes it perfect for playing with friends or siblings. Inside, there's a comfortable mattress that helps children to sleep better when they have nightmares or if their room is too cold. The tipi comes with an instruction manual.
+
 - **FAST ASSEMBLY** This child's tepee is super easy to set up and only takes 5 minutes.
 
 - **STURDY TEEPEE** 4 pegs are supplied to hold it firmly in place in the ground for outdoor use

@@ -16,6 +16,10 @@ url: boppi-teepee-play-tent-large-outdoor-tent-review
 
 ### Product Description
 
+Boppi® Teepee Play Tent Large Outdoor Tent is the ultimate play tent for your children. It features a durable canvas cover with tie-backs and an easy to use carry bag. The space saving design allows you to store it easily in your home or take it with you on the go. The large size is perfect for multiple kids to fit inside, or even adults!
+
+The quality of this product is unmatched by any other, as it has been made from high quality materials that are both sturdy and safe for children. This tent will provide hours of fun.
+
 - **DURABLE CANVAS COVER** – A durable canvas boppi teepee cover with doorway tie-backs for an open or closed entrance.
 
 - **SPACE SAVER CARRY BAG** – A drawstring carry bag allows for a space saving storage option and compact transportation to the park or play-dates.

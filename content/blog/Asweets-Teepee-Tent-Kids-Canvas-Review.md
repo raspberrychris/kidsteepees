@@ -14,6 +14,10 @@ url: asweets-teepee-tent-kids-canvas-review
 
 ### Product Description
 
+This is a brand new, beautiful and high quality kids teepee tent. It's made of thick canvas which makes it very durable. The wood frames are smooth and won't hurt your hands when touching. This teepee can be used as a playhouse or a fort for kids and even adults!
+
+The size is about 3 ft x 4 ft (about 90 cm x 120 cm) which is pretty big enough for 2-3 children to sleep in. You could also use it as a reading room if you like books or just enjoy reading quietly alone.
+
 - **HIGH-QUALITY CANVAS**: 250 G/SM heavy cotton canvas, which is very thick, durable and won't harm the environment when thrown away.
 
 - **HIGH-QUALITY RUSSIAN WOOD FRAMES**: Smooth wood, it won't hurt your hands when touching. Because Russia is much colder in whether than anywhere else, plants there grow very slowly and the wood there would be much stronger than wood from other areas. Our teepee pole Diameter is 24 mm and is strong enough for kids safety and not easy to break.

@@ -8,13 +8,15 @@ canonicalUrl: “/carnicove-tee-pee-tent-kids-review"
 url: carnicove-teepee-tent-kids-review
 ---
 
-## Canicove Teepee Tent Kids Review- (OUR #1 Pick!)
+## Canicove Teepee Tent Kids Review - (OUR #1 Pick!)
 
 [![carnicove-teepee-tent-kids](<https://images-na.ssl-images-amazon.com/images/I/712KhtB2k4L._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 [![carnicove-teepee-tent-kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 ### Product Description
+
+Canicove's TeePee Tent is a fun, safe and imaginative play tent for children. It's made from thick durable canvas, hard wearing safety cord & sturdy poles - no brittle plastic or sheets for a play tent that meets EU Toy Safety Standards.  This will give you peace of mind that your Teepee is safe for your little ones to enjoy fun, imaginative, pretend play.  Available in 2 sizes: Small (2m) Suitable for ages 3-6 years old. Large (3m) Suitable for ages 6-12 years.
 
 - **AWARD WINNING TEEPEE TENT FOR KIDS**: Designed from rugged natural materials such as thick stitched canvas, hard wearing safety cord & sturdy poles - no brittle plastic, or  sheets for a play tent that meets EU Toy Safety Standards.  This will give you peace of mind that your Teepee is safe for your little ones to enjoy fun, imaginative, pretend play.
 

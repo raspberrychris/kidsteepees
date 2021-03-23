@@ -14,6 +14,8 @@ url: aniikiss-6-giant-canvas-kids-play-review
 
 ### Product Description
 
+Aniikiss 6' Giant Canvas Kids Play Tent with Side Length 49.2", Fabric Height 53.1", Top Height 59", Pole Length 72.4" is a large play tent for kids, which can be used as a den, reading nook or even to hide and play in on those rainy days! The tent features a side window that allows air flow and light into the room while keeping bugs out. It also has 2 mesh windows on both sides of the top of the tent with Velcro tabs that open and close to allow airflow and visibility inside
+
 - **Large Space for Child** The tent size is with side length 49.2", fabric height: 53.1", top height 59", pole length 72.4". Your child can own a large independent and interesting space for rest and recreation.
 
 - **Fast and Easy to Assemble** The package comes with 8 poles which 2 parts can be assembled by a connector. You can set up or fold it within several minutes without tools required. The tent comes with a anti-collapse kit which keep the tent not easy to fall down if your child collide the tent.

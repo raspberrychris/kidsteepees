@@ -14,6 +14,8 @@ url: elfique-tipi-teepee-double-padded-cover-review
 
 ### Product Description
 
+The Elfique Tipi Teepee Double Padded Cover is a double-padded cover for the tipi teepee. It provides extra comfort and protection to your kids from cold or rain.
+
 - **ELEGANT & TASTEFUL FABRIC** The fabric's choice is characterised by simple elegance and tasteful, composition of colours and patterns that your children's bedroom with a contemporary look. All the details are carefully, precisely crafted. We place great emphasis on creating.
 
 - **SAFE** The fabric has safety certification OEKO-TEX Standard 100 and certified

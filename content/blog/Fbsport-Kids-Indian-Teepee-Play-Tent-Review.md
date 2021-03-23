@@ -14,6 +14,10 @@ url: fbsport-kids-indian-teepee-play-tent-review
 
 ### Product Description
 
+This teepee play tent has a breathable mesh window, an easy-to-tie-up front door flap and is safe for indoor or outdoor use. The lightweight, foldable Indian teepee can be taken anywhere with you. Its size makes it perfect for young children ages 1 to 8. This  product was made in China and is available in three colour options: blue/white, pink/white and red/white.
+
+This Kids Teepee Play Tent is the ideal gift for your child!
+
 - **BREATHABLE** Mesh Windows for Air Flow
 - **EASY FOR KIDS** Tie-Up Front Door Flap
 - **EASY ASSEMBLY**Easy to Assemble, Easy to Clean
