@@ -13,6 +13,10 @@ Welcome to [kidsteepees.co.uk](https://kidsteepees.co.uk) the number one place t
 ![princess-teepee-girl](<https://cdn.pixabay.com/photo/2020/04/17/07/33/princess-5053620_960_720.jpg>)
 **Teepees** make an excellent gift to give to younger children and their unique design gives them their own space where they can use their imagination to role-play different scenarios with friends or their loved ones.  Imaginative play gives an opportunity for kids to develop language and social skills by talking with other children or adults and problem solving.
 
+## What is a Teepee Tent?
+
+Teepees are known to be the best playhouses for kids! They create an imaginary world where children can let their imaginations run wild. The teepees are designed with five poles in the shape of a pentagon, and are usually made from non-toxic cotton canvas that’s durable and breathable. Kids love to play in teepees as it helps them develop their imagination and creativity! The teepee tent has many uses including reading, resting or even playing inside! It’s also great for indoor use.
+
 ## Teepees make brilliant traditional presents
 
 In a world full of electronic devices that adults are engrossed in it is important to remember that it wasn't always this way!  Enable your kids to have fun without a phone, computer or tablet and

@@ -16,6 +16,8 @@ url: funwithmum-teepee-tent-childrens-tipi-review
 
 ### Product Description
 
+Funwithmum Teepee is a great hideout for your child at any time of the year. It will be perfect for your house, flat, patio, balcony or garden. It will embellish any interior and make it cozy. This teepee is roomy meaning a parent and child can fit inside with no problems. The tent is lightweight and sturdy so you can move it around as you wish.
+
 - **GREAT HIDEOUT**  This Teepee tent will make a great hideout for your child at any time of the year.
 
 - **PERFECT ANYWHERE** It will be perfect for your house, flat, patio, balcony or garden. It will embellish any interior and make it cozy.
