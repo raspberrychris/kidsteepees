@@ -14,6 +14,8 @@ url: relaxdays-teepee-play-tent-childrens-playhouse-review
 
 ### Product Description
 
+This pop-up teepee is just perfect for the nursery or games room. It's great for children ages 3 and up. The neutral design makes it suitable for both boys and girls. It has an integrated floor and window on the backside, so you can look out from inside while remaining hidden from outside. And best of all, this play tent remains folded out permanently to delight your kids!
+
 - **NEUTRAL DESIGN SUITABLE FOR 3+** This play tent is so much fun for girls and boys alike with an integrated floor and window on the backside - Suitable for children ages 3 and up
 
 - **FOR INDOORS** This pop-up teepee is just perfect for the nursery or games room - Can also remain folded out permanently to delight your kids

@@ -14,6 +14,10 @@ url: peradix-kids-teepee-tent-foldable-review
 
 ### Product Description
 
+This Teepee is a great alternative to a tent for your kids. It is not only an exciting place for them to play but also can be used as a hideout, reading nook or just somewhere quiet and comfortable where they can escape and relax.
+
+The Peradix Teepee is made from high-quality materials which makes it durable and easy to clean. It has two windows with flaps that cover the zippers so there are no sharp edges around the window openings. The roof of this teepee is covered in canvas material while the walls are made from
+
 - **EASY TO TRANSPORT AND ASSEMBLE** Easy to carry &  to assemble.  This Teepee can be assembled and disassembled quickly and easily using our instructions. Folded size: 50x35x12cm, all parts can be stored in our suitcase, making it easy to carry around. T
 
 - **HIGH QUALITY MATERIALS** The Peradix Tipi is made of 8-ounce cotton canvas. It is durable and the support rod is durable pine logs. It has not been dyed or otherwise chemically treated. Children's conical tents have no irritating smell, are environmentally friendly, and have excellent materials.

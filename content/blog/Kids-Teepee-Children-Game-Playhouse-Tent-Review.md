@@ -15,6 +15,10 @@ url: kids-teepee-children-game-playhouse-tent-review
 
 ### Product Description
 
+This Kids Teepee Tent is a great place for your kids to play, read, sleep or have fun with their friends. It's made of 100% Eco and Skin-friendly Canvas Material, which makes it more breathable, and will do no harm to your children's skin. Creating a perfect healthy play or rest environment for your kids.
+
+The tent comes with an attached floor mat that has two zippers so you can easily access the inside from both sides. The mesh windows on the side provide good ventilation and let in lots of light during the day
+
 - **Skin-friendly Canvas** This Kids Teepee Tent is made of 100% Eco and Skin-friendly Canvas Material, which makes it more breathable, and will do no harm to your children's skin.  Creating a perfect healthy play or rest environment for your kids.
 
 - **Side Window Design** Safer and Cosier.  Adopted side window and mesh top design, this Tipi Toddler Play Tent can make the inside of the tent more ventilated, cozier, comfortable and more breathable, giving your kids a better light inside and a better view of outside; meanwhile also enable you to watch kids inside to keep them safe

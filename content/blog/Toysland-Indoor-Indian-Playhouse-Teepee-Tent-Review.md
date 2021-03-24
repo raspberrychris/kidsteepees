@@ -14,7 +14,9 @@ url: toysland-indoor-indian-playhouse-teepee-tent
 
 ### Product Description
 
--**EASY TO ASSEMBLE** Easy to set up, fold, move and store
+Toysland Indoor Indian Playhouse Teepee Tent, a great teepee tent for children ages 4 and up. Easy to set up, fold, move and store. This teepee tent is suitable for adventure, kids playing family travelling. Made of high quality canvas material with good stitching and durable thick cotton rope. Fashionable but classic, one door and one window design with two windows on both sides which create enough air flow to keep your child cool in summertime. The top of the teepee can be opened or closed depending on how much light you want inside the
+
+- **EASY TO ASSEMBLE** Easy to set up, fold, move and store
 
 - **GREAT DESIGN** Fashionable but classic, one door and one window design
 

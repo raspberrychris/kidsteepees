@@ -14,6 +14,8 @@ url: pericross-kids-castle-tee-pee-tent-princess-review
 
 ### Product Description
 
+Pericross Kids Castle Tee-Pee Tent Princess, perfect for indoor and outdoor use. It's a great gift for kids! Hexagon shaped tent with durable and log lasting polyester blend fabric, lightweight and portable. Comes with a carrying bag, making it easy to store when it's time to put the toys away. Breathable mesh windows provide air flow and visibility for children to see out easily while inside the tent. The side door can be unzipped completely or partially to allow easier access in and out of the tent. Suitable for ages 2+.
+
 - **HEXAGON** Tent Dimensions in inches is: 55" (Diameter) x 53" (H). Specially designed hexagon shape, provides a perfectly sized space, giving your children plenty of room to stand and play, even an adult can fit inside!
 
 - **DURABLE** Made with durable and log lasting polyester blend fabric, lightweight and portable. Comes with a carrying bag, making it easy to store when it's time to put the tent away. Excellent for indoor or outdoor play.

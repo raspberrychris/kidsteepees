@@ -14,6 +14,8 @@ url: luvodi-girls-pink-teepee-tent-children-review
 
 ### Product Description
 
+Luvodi girls pink teepee tent is a new design of kids playhouse, which is made with 100% natural non-toxic wood and linen fabric. It can give your kids a cozy place to lounge, sleep, enjoy role playing, relax themselves, play with friends for hours of fun. This tent is very suitable for both indoor and outdoor use as it comes with a user manual for easy assembling and cleaning.
+
 - **DURABLE & SAFE** LUVODI kids teepee is made with 100% natural non-toxic wood and linen fabric, which is very sturdy and durable for a long period use.
 
 - **COSY** This play tent can give your kids a cozy place to lounge, sleep, enjoy role playing, relax themselves, play with friends for hours of fun.

@@ -14,6 +14,8 @@ url: moritz-moritz-teepee-tent-review
 
 ### Product Description
 
+The Moritz & Moritz Teepee Tent is a great place to play and relax. The teepee tent is perfect for the kids room or garden. Its cotton material is durable and easy to clean. This children's teepee tent has a floor cover and window which encourages the imagination and creativity of your child. The highest quality processing makes this teepee tent suitable also for outdoor use. It combines comfort, functioning and design in one product!
+
 - **HAVE FUN PLAYING** - Perfect place to play and relax, with floor cover and window, encourages the imagination and creativity
 
 - **HIGHEST QUALITY** - Approx. 120x120x150 cm, quality processing. Combines comfort, functioning and design

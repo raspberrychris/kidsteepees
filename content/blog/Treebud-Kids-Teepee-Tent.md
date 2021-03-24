@@ -14,6 +14,10 @@ url: treebud-kids-teepee-tent
 
 ### Product Description
 
+Treebud Kids Teepee Tent is a portable and foldable play tent for kids. It is made of sheer lace fabric and smooth and strong pine wood poles. The tent uses extra reinforcement and has a silicone anti-skid sleeve to increase the stability & safety of the play tent.
+
+It features an easy setup with no tools required, so it can be quickly assembled or taken down within minutes. The Treebud kids teepee tent is ideal for indoor or outdoor use, such as backyard, park, picnic etc.
+
 - **STURDY & DURABLE** This Treebud kids teepee tent is made of sheer lace fabric & smooth and strong pine wood poles. It uses extra reinforcement and has a silicone anti-skid sleeve to increase the stability & safety of the play tent.
 
 - **PORTABLE & FOLDABLE** The assembled play tent has a bottom length of 43.3 inches and an overall height of 63 inches. It is lightweight and easy to put together.

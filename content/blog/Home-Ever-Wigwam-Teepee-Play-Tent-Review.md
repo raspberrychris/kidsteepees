@@ -14,6 +14,8 @@ url: home-ever-wigwam-teepee-play-tent-review
 
 ### Product Description
 
+This Wigwam Teepee play tent is made from a high quality canvas material with a groundsheet. The teepee has wooden poles which are approx size 140cm tall and 120cm width (150cm across the base). It is easy to construct and easy to put away if you wish. This teepee would be ideal for any child who loves imaginative play, or even just likes having their own little space!
+
 - **HIGH QUALITY CANVAS** Wigwam- Beautiful Canvas Material with groundsheet
 
 - **STRONG WOODEN POLES** Wooden Poles, approx size 140cm tall & 120cm width (150cm across base)

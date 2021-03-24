@@ -14,6 +14,8 @@ url: triclicks-kids-teepee-play-tent-review
 
 ### Product Description
 
+The Triclicks Kids Teepee Play Tent is a spacious and cozy place for your kids to play, read, sleep or hide out. The lacing at the door of the kids teepee is used to open and close the entrance. This teepee has a sturdy wooden frame with 100% Durable cotton canvas material that makes it perfect for indoor or outdoor use. It can be easily assembled in minutes without any tools required. The lightweight design allows you to move it from room to room or take it on vacation with ease! Perfect for children indoors or outdoors!
+
 - **PERFECT PRESENT** The lacing at the door of the kids teepee is used to open and close the entrance.
 
 - **DURABLE & STURDY** 100% Durable cotton canvas and sturdy wood material. Size: 120 cm x 120 cm x 150 cm (height).

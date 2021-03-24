@@ -14,6 +14,8 @@ url: quieting-kids-teepee-play-tent-children-review
 
 ### Product Description
 
+This Teepee tent is a great choice for kids to play and have fun in. This teepee tent can be used as indoor and outdoor playhouse, it can also be used as a reading room or a place to take a nap. The design of the teepee tent is very creative, it has cool triangle patterns on the top of the roof, which makes it look like an Indian teepee tent. It's made of 100% natural cotton canvas material, breathable and unpainted. The frame is made of sturdy pine wood poles without any chemical odours or harmful
+
 - **100% NATURAL** This teepee tent is made of 100% natural, breathable and unpainted cotton canvas. The tent poles are made of sturdy pine wood and are free of chemical odours and harmful substances.
 
 - **EASY TO SETUP** They can be setup either at home or outside and provide children with a feeling of privacy and personal space, while allowing parents to monitor them for their safety. For children ages 3 and up.

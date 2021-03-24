@@ -14,6 +14,8 @@ url: uniquevc-kids-princess-play-tent-indoor-review
 
 ### Product Description
 
+This is a fun and functional indoor tent. This tent can be used for different purposes, such as reading, games or even just to relax in after a long day. It has 3 large windows that provide plenty of light and ventilation. The size is 51”x39”x51″(LXWXH), enough for 2-3 kids play together. Also it's easy to set up or fold down the tent .
+
 - **CONSIDERATE DESIGN** This Princess teepee Tent has 3 windows which allows light for your children and also allows you to keep an eye on them!
 
 - **LARGE SIZE** Our princess tent size is 51”x39”x51 and can accommodate up to 3 kids at the same time, it is enough to let kids have their own private place for entertaining, eading,playing games and relaxing themselves in this playhouse.

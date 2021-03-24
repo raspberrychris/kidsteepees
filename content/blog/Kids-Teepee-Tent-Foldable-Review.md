@@ -14,6 +14,8 @@ url: kids-teepee-tent-foldable-review
 
 ### Product Description
 
+Kids Teepee Tent Foldable, Kids Playhouse Portable Indoor Outdoor Children's Activity Cute House Castle with Flap Window and Pocket. Great for Kids Birthday Parties, Home Indoor & Outdoor Activities.
+
 - **MADE OF NATURAL PREMIUM DURABLE MATERIALS**
 - **BUILT-IN POCKET & FLAP WINDOW**
 

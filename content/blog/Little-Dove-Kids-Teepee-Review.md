@@ -14,6 +14,10 @@ url: little-dove-kids-teepee-review
 
 ### Product Description
 
+Little Dove Kids Teepee is a great addition to any child’s bedroom. It has colourful balls and lace, making it attractive for children to play with. It can be used for reading books, playing games & sleeping.
+
+It is made from 100% cotton, which makes it easy to clean with a damp cloth, strong and durable. The design of the teepee allows air to circulate freely around your child so that they stay cool in summer and warm in winter.
+
 - **HIGH QUALITY** Made from 100% cotton, it is easy to clean with a damp cloth, strong and attractive, with coloured balls and lace.
 
 - **COMFORTABLE** Children can get cosy in the teepee and can read books, play games & sleep.

@@ -14,6 +14,8 @@ url: hippococo-teepee-tent-kids-large-tent-review
 
 ### Product Description
 
+The Hippococo kids teepee tent is a unique indoor and outdoor playhouse for your children. It has 5 wooden poles aligned in a pentagon shape, which makes the teepee sturdy and tall with plenty of room inside. This teepee tent can be used as an extra bedroom or playroom by day and a secret hideout by night. The Hippococo TeePee Tent is made of heavy, soft, durable, breathable non-toxic cotton canvas with double stitched seams throughout to ensure that it lasts for many years to come.
+
 - **UNIQUE INDOOR OUTDOOR PLAYHOUSE FUN** - The Hippococo kids teepee tent is durable, safe, tall and spacious with a 5 wooden poles aligned in a pentagon shape. This teepee tent has a variety of uses and is perfect for your kids imaginative play.
 
 - **QUALITY CRAFTSMANSHIP** - Made of heavy, soft, durable, breathable, non-toxic, unpainted, extra safe cotton canvas with double stitched seams throughout and durable wood poles.
