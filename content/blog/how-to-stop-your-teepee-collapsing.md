@@ -16,8 +16,6 @@ Teepees are traditionally used for camping, but they can also be made into playh
 
 [![peredix-kids-teepee-tent-foldable](<https://images-na.ssl-images-amazon.com/images/I/61eGKLWpJJL._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Peradix-Foldable-Portable-White-Grey-Playhouse/dp/B088ND5LLK/?tag=kidsteepees-21>)
 
-[![peredix-kids-teepee-tent-foldable](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Peradix-Foldable-Portable-White-Grey-Playhouse/dp/B088ND5LLK/?tag=kidsteepees-21>)
-
 Teepees are one of the most popular structures for kids to play in. They're easy to set up and they provide a great space for playtime! But what happens when the winds start blowing? The teepee might collapse, which can be frustrating and hazardous. There's no need to worry though- there are some important steps you can take that will keep your teepees standing strong. Keep reading below to learn more about how you can stop them from collapsing!
 
 ## Teepee Structure and design
@@ -29,8 +27,6 @@ Teepees are made of poles and a cover. The top is usually open, but it can be cl
 Is there a good way to stop them from collapsing? Yes! Tie some rope around each pole about halfway up its height before setting anything else on there; this will help stabilise everything as well provide extra support against any sudden gusts of wind by adding tension between all four corners.
 
 [![carnicove-teepee-tent-kids](<https://images-na.ssl-images-amazon.com/images/I/712KhtB2k4L._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
-
-[![carnicove-teepee-tent-kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 ## Other top tips for helping to stop your teepee from collapsing:
 
