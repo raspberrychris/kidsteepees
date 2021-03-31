@@ -30,7 +30,7 @@ Is there a good way to stop them from collapsing? Yes! Tie some rope around each
 
 [![carnicove-teepee-tent-kids](<https://images-na.ssl-images-amazon.com/images/I/712KhtB2k4L._AC_SX679_.jpg>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
-[![carnicove-teepee-tent-kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>
+[![carnicove-teepee-tent-kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Teepee-Play-Tent-Kids-Children/dp/B078BXNCS5/?tag=kidsteepees-21>)
 
 ## Other top tips for helping to stop your teepee from collapsing:
 
