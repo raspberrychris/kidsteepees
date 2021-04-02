@@ -27,7 +27,7 @@ Vygotsky's theory of play is that children learn through their interactions with
 
 Playtime should not only involve fun games but also activities which have educational value"
 
-- Vygotksys' Theory Of Play: Children Learn Through Interactions With Others
+- Vygotskys' Theory Of Play: Children Learn Through Interactions With Others
 
 ## What are the main points of Vygotsky's theory?
 
