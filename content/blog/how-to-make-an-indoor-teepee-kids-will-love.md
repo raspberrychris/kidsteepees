@@ -4,6 +4,7 @@ date: 2021-02-27T14:20:12Z
 draft: false
 canonicalUrl: “/how-make-an-indoor-teepee-kids-will-love"
 url: how-make-an-indoor-teepee-kids-will-love
+description: "Learn how to make a teepee just for kids. This is the perfect activity that will keep your little ones entertained. It's easy and fun!"
 ---
 
 Kids love to play in teepees! In this post, we will show you how to make an indoor teepee for kids that they'll love. You don't need a sewing machine or any complicated tools, just some fabric and a few other supplies.
